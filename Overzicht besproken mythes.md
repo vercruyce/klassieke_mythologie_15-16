@@ -28,4 +28,7 @@
 ## Les 4
 
 * Demeter en Persephone
-* 
+* Myrrha en Kinyras
+* Adonis en Aphrodite
+* Demeter en Baubo
+* Isis en Osiris
