@@ -9,7 +9,7 @@
 	* anderzijds ligt hij heel vaak in conflict: met zichzelf, met de goden, met de gemenschap en heel vaak ook met de vrouw.
 * Het beeld op de eerste slide is Heracles. Bekend van zijn twaalf werken. Een van die taken is het halen van de appels van de nespeniden. In hun tuin zouden gouden appels groeien. Heracles moet deze appels aan het einde van de wereld gaan halen. Die tuin werd bewaakt door een onverslaagbare draak. Daarna moest hij ook nog passeren aan de titaan Atlas. Deze heeft de taak gekregen om de hemel naar boven te houden. Atlas is ook de vader van de nespeniden. Heracles vraagt dan aan Atlas of hij de appels wilt gaan halen bij zijn dochters. Die gaat akkoord als Heracles even de hemel wilt overnemen. Hierna wilt Atlas de hemel niet meer overnemen van Heracles. Heracles redt zich hieruit door eerst aan Atlas te vragen of hij even een touw rond zijn schouders mag binden om hem te helpen bij zijn last. Atlas neemt dan nog eventjes de hemel over, waarop Heracles vertrekt.
 * De derder persoon op de eerste slide is Athena. Zij helpt Heracles bij het dragen van de Hemel. Heracles denkt dat hij de hemel zelf draagt, terwijl de godin achter zijn rug hem eigenlijk helpt.
-* Heel vaak is de held een voorbeeld. Hij is een uitvergroting van de dagdagelijkse man, en toont hoe hij door het leven zou moeten gaan. 
+* Heel vaak is de held een voorbeeld. Hij is een uitvergroting van de dagdagelijkse man, en toont hoe hij door het leven zou moeten gaan.
 * Heracles: drie attributen:
 	* knots
 	* boog
@@ -23,7 +23,7 @@
 * Wat betekent "heros":
 	* Kan vertalen als held, halfgod
 	* Men nam ervan aan dat de held echt bestaan had. Maar het ging eerder over een quasi bestaan. Dus zoals bij de meeste mythes: ze bestonden wel, maar in een wereld verschillend van de onze
-	* Hebben vaak een beschavingsschtichtende functies, waar hij dan het middelpunt vormde van een sociale cultus. Een soort beschermende kracht voor een bepaalde stad of volk. 
+	* Hebben vaak een beschavingsschtichtende functies, waar hij dan het middelpunt vormde van een sociale cultus. Een soort beschermende kracht voor een bepaalde stad of volk.
 * Hesiodos: de 5 mensengeslachten: nogal zwartzinnige mythe over de vijf soorten mensen
 	* Gouden tijd: de aarde gaf vanzelf voedsel, mensen zijn zo goed als ontsterfelijk, geen landbouw was nodig.
 	* Zilveren tijd
@@ -80,3 +80,97 @@
 * Herakles is de enige Griekse held die de goddelijkheid heeft bereikt. Dit komt omdat Zeus hem als kind aan de borst van Hera heeft gelegd, en de goddelijke moedermelk heeft voor de goddelijkheid van Herakles gezorgd.
 * Herakles werd door Hera waanzinnig gemaakt worden, waarop hij zijn eerste vrouw en kinderen doodde.
 * Lees meer over 12 werken van Herakles (ga ze niet uittype nu)
+
+**12/05/2016**
+
+* Herakles werd geholpen door de maagdelijke godin Athena. Deze godin kwam helden wel vaker te hulp.
+* Herakles komt om het leven door een vrouw. Ze probeerde hem echter niet te doden. Ze gaf hem het Nassushemd. Dit bevat echter nog het gif waarmee hij zelf het monster had gedood. Hierop werpt Herakles zichzelf op de brandstapel.
+* Herakles wordt als enige held opgenomen als een god na zijn dood. De goden houden volgens de mythe een schijngeboorte, waarbij Herakles vanonder Hera's rok kroop. Hierna verzoende Hera en Herakles zich.
+* Herakles werd soms afgeschilderd als een komisch figuur, een schertsfiguur. Als een soort Obelix, sterk maar zeer onwetend.
+* In andere opvoeringen was hij een tragische held.
+* Herakles was een patroonheilige van de Stoichijnen. Herakles heeft heel zijn leven geleden maar is altijd plichtsbewust geweest. Dit is een van de grootste idealen volgens de Stoa.
+* Schilderij met de twee vrouwen:
+	* Deze vrouwen zijn een allegorie van de deugd en de ondeugd.
+	* De ondeugd (rechts) toont een makkelijke, rustige weg, vol wereldlijkse geneugden. De deugd toont een stijl bergpad. Uiteindelijk maakt Herakles de juiste keuze, en kiest voor de deugd. Deze weg brengt hem uiteindelijk bij zijn doel.
+* Schilderij rechts:
+	* De Grieken hadden een grote vrees voor dominante vrouwen. Het is daarom dus vreemd dat Herakles in deze vernederende situatie wordt afgebeeld.
+* Herakles was een panheleense held.
+
+#### Hylas
+* Hylas was de schildknaap en minnaar van Herakles in de mythe van de Argonauten.
+* Hylas komt in het woud bij een vijver waar net nymfen aan het baden waren. Deze vonden Hylas zo een mooie jongeman dat ze hem meesleurden naar de bodem van de vijver. Herakles gaat op zoek in het woud naar zijn vriend, waarbij "Hylas!" bleef roepen. Hiervan zou helaas afgeleid kunnen zijn.
+* Nymfoleptos: ontvoerd door Nymfen. Dit was een terugkerend thema in de Griekse mythologie. Het zou een weerspiegeling zijn van de angst van de Grieken voor (dominante) vrouwen. Tot op de dag van vandaag leven er nog folklore verhalen op het Griekse platteland over nymfen.
+* Nog een verhaal uit de Argonauten:
+	* Ze komen aan op een eiland met enkel vrouwen op. Na maanden op zee kunnen de mannen hun geluk niet teboven. Enkel Herakles blijft op het schip en na een tijdje brengt hij de mannen met geweld weer terug naar het schip.
+* In deze context was Herakles dus een homoseksueel en een echte vrouwenhater.
+
+#### Theseus
+
+* Theseus lijkt in vele aspecten op Herakles.
+* Theseus verricht enkele werken als brengen van beschaving. Hij doodt veel schurken en monsters in de streek van Athene. Daarom werd hij een patroonheilige van die stad.
+* Theseus doodt ook zo Procrustes. Deze pleegde een van de meest verschrikkelijke daden volgens de Grieken: hij doodde zijn eigen gasten. Wanneer gasten aan zijn deur stonden, was hij zeer vriendelijk en boodt volledige gastvrijheid. Het bed was echter heel klein, en dus hakte Procrustes ledematen van zijn gasten af tot ze in zijn bed pasten.
+* Theseus is ook de doder van de Minotaurus.
+	* De koning van Kreta, Minos, krijgt van Poseidon een prachtige stier cadeau om aan hem te offeren. Hij weigert echter dit dier te doden. Als straf laat Poseidon Minos' vrouw verliefd worden op de stier. Ze laat Daedalus een machine bouwen zodat ze met de stier kan vrijen. Hieruit wordt de Minotaurus geboren. Minos laat dit monster opsluiten in een labyrint. Enzovoort...
+* In de Minoïsche beschaving kwam het symbool van de stier heel vaak terug. Het is nog niet volledig duidelijk waarvoor dit stond, maar heel waarschijnlijk stond het voor de koninklijke macht. Deze mythe heeft dus een heel sterke archeologische onderbouwing.
+* Waarvoor is het labyrint een methafoor?
+	* Een plaats waar je op zoek gaat naar je zelf. Je moet het dierlijke en monsterlijke in jezelf controleren.
+* Theseus neemt Ariadne mee naar Athene, maar laat haar onderweg op een eiland achter. Op de kust klaagt ze over Theseus die haar verlaten heeft. De god Dionysus (die zelf uit een sterfelijke moeder geboren is), komt haar tegen en wordt verliefd op haar. Ze wordt zijn bruid.
+	* Ook dit huwelijk kan een metafoor zijn voor het huwelijk met de waanzin (waar Dionysus ook een god van was). Het kan dus ook betekenen dat Ariadne haar verstand verliest.
+
+* De centauren zijn een volk waarmee de helden vaak in conflict komen. Deze hebben het lichaam van een paard en de torso en hoofd van een mens.
+* De held moet vaak een beest of monster verslaan, maar dit lijkt alleen te werken wanneer ze zelf ook een beestachtig aspect in zichzelf hebben.
+* Het beestachtige is in veel verhalen ook iets dat buitgemaakt moet worden. Veel helden eigenen zich een deel van het monster toe nadat ze het verslagen hebben.
+* Er is een held die een monster doodt zonder een trofee mee te nemen, hij raakt hem zelfs niet aan: het verhaal van Oedipus die de sfinx doodt puur met zijn verstand.
+
+#### Jason
+
+* Ook Jason heeft problemen met vrouwen. Hij heeft ook af te rekenen met een koning die hem zijn rechten niet gunt. Zijn vader was door zijn oom van de troon gestoten. Jason gaat daarom naar zijn oom om zijn rechtmatige plaats op te eisen. Onderweg komt hij een oud vrouwtje tegen die er niet in slaagt om een riveir over te steken. Jason helpt haar oversteken en verliest hierbij een sandaal. Dit vrouwtje blijkt Hera te zijn, die vanaf dan Jason zal bijstaan. Uiteindelijk komt hij bij zijn oom aan. Deze had van een orakel gehoord dat hij zijnn einde zou vinden door een man met één sandaal. Daarom geeft de oom Jason de taak om het gulden vlies te halen, een taak waarvan gedacht werd dat niemand het zou overleven. Om deze taak te volbrengen verzamelt Jason alle grote Griekse helden, de Argonauten. (lees verhaal van de Argonauten en hun tocht). Uiteindelijk komen ze in Colcisch aan waar het gulden vlies bewaard wordt door koning Aietes. Deze wilt het vlies geven aan Jason, als hij zich waardig toont. Hij moet hiervoor de ossen mennen, die vuurspuwden. Jason kan niet slagen in deze proef, daarom helpt Hera hem. Hera gooit het op een akkoord met Aphorodite, die de dochter van Aietes, Medea, op Jason verliefd laat worden. Medea helpt Jason bij zijn proeven en verraad haar eigen vader hierbij. Nadat de proeven gelukt zijn, neemt Jason Medea met zich mee.
+Wanneer ze terug bij zijn oom komen, neemt deze het vlies aan, maar staat de troon niet af. Medea doodt de oom in Jasons plaats. Ze maakt hem wijs dat ze hem kan verjongen door hem in stukken te kappen en te koken.
+De burgers zijn echter zo geschokt door al deze gruwels waardoor Jason nog steeds niet koning kan worden. Hij krijgt echter nog een kans om de kroon te verkrijgen door te trouwen met een prinses. Daarom verstoot Jason Medea. Medea is woedend en dood hun beide kinderen en vlucht dan weg met een span getrokken door vuurspuwende draken.
+* Hoe komt het dat Medea met zo een daad wegkomt? In het origineel verhaal was Medea waarschijnlijk niet het monsterachtig figuur zoals in deze versie. Medea is waarschijnlijk ontstaan uit een oude moedergodin. Deze staat dus voor het geven en nemen van het leven en de levenscyclus. Dit zou bij de Grieken naar deze versie geëvolueerd zijn.
+* Medea doodt hun zonen zodat Jason alle vormen verliest op een vorm van ontsterfelijkheid door zijn kinderen. Uiteindelijk komt Jason zeer tragisch ten einde. Hij lag als oude man te slapen op het vrak van de Argo. Er brak een stuk van de mast af die hem verpletterde.
+
+#### De held tussen monsters en goden.
+
+* Typhon is een wezen dat beschreven wordt als een draak met duizend koppen. Hij heeft ontelbare stemmen, schreeuwen en dierengeluiden. Hij ontstond uit een conflict tussen man en vrouw: namelijk tussen Zeus en Hera. Hera is kwaad dat Zeus haar rol in de kosmos twee keer beledigd heeft. Zeus heeft namelijk twee kinderen zelf verwekt: Athena uit zijn hoofd en Dionysus uit zijn dij.
+* Volgens de Grieken was e hermafrodiet een ideaal. Een wezen dat zowel man als vrouw is, die niemand nodig heeft om zich voort te planten.
+* Hera wilt dus Zeus straffen door ook zelf een kind te verwekken. Hier komt het monster Typhon uit voort (hier blijkt dus ook weer de Griekse vrouwenhaat: als Zeus het doet, komt er een godin uit voort, bij Hera een monster). Dit monster is zo krachtig dat hij er zelfs in slaagt om Zeus' bliksem af te nemen. Zeus heeft uiteindelijk een sterveling nodig om het monster te kunnen overwinnen. Dit zal Kadmos zijn. Deze speelt met zijn luit de draak in slaap, waarop hij de bliksem terug kan stelen en de pezen van het monster doorsnijdt. Met hernieuwde krachten kan Zeus hem doden.
+* Helden zijn als een soort miniatuurversie van de scheppende goden. Dit heeft ook een nadeel: ze staan als mens het dichtste bij het godendom, waardoor ze vaak overmoedig (hubris) worden. Hij probeert zich de ontsterfelijkheid toe te eigenen.
+
+* De held is als een soort tussenwezen. In de eerste plaats heeft de polis hem nodig om uit de chaos orde te scheppen. Achteraf komt de held zelf in conflict met de polis omdat hij zelf het monsterlijke in zcih heeft. Hij is vaak meer of mindere dan de gewone mens.
+* De Centauren en de Amazonen staan voor de verstoring van het universum. De mannelijke held moet zegenvieren om de orde te scheppen.
+
+* De centaur Chiron verschrijnt in verschillende verhalen op als een leermeester. Hij staat voor een wijsheid die in het primaire, dierlijke verborgen zit.
+
+#### De held en de vrouw. Een gespannen relatie.
+
+* De vrouw was in veel gevallen machtiger dan de mannelijke held. Dit is zeer vreemd voor een cultuur waarbij de vrouw amper macht had.
+* Ook monsters waren vaak vrouwen (Medusa, syrenen, ...).
+* verhaal Scylla en Picus en Circe + scylla en charybdis
+* Tussen scylla en charybdis kiezen: het minste van twee kwaden kiezen.
+* Positieve verhalen van vrouwen bestaat ook, maar hierin zijn de vrouwen steeds maagden. Het is pas wanneer de maagdelijkheid doorbroken wordt dat de vrouwen als negatief worden afgeschilderd.
+	* Men kan dit verklaren als een zekere symboliek.
+	* De vrouw representeert de cyclus van leven en dood. Geboren worden houdt hierbij altijd sterven in. De seksuele differentiatie tussen man en vrouw heeft onlosmakelijke met de dood te maken. De dood en de vrouw zijn volgens de mythologie samne gekomen. Om het ontsterfelijke te bereike, moet de held de vrouw afzweren.
+* Een andere mogelijke lezing over de vrouw in de mythologie:
+	* The glory of Hera (Hera is zijn grootste case study)
+	* Kernvraag: waarom worden vrouwen zo negatief afgeschilderd.
+	* Hij herleidt dit terug naar de rol van de vrouw in het gezin in de 5de eeuw voor Christus. De vrouw werd heel sterk onderdrukt (denk aan Demeter en Persephone als kritiek hierop). Dit had een vreemde keerzijde. De vrouw was quasi eigendom van haar vader of man, ze stond voortdurend onder het toezicht van een man. Een van haar taken was echter de kinderen opvoeden, ook de jongens. De jongens stonden tot aan de volwassenheid dus onder het toezicht van hun moeder, afgezonderd van de mannenwereld. Dit zie je ook terug in de mythe van Herakles, waarbij Hera Herakles kon blijven treiteren zonder inmenging van Zeus. Toch hadden de jongens de voorkeur bij de ouders aangezien meisjes uitgehuwelijkt werden wat een volledige breuk was met de familie.
+	* Een Griekse jongen leefde dus volledig afgezonderd van de mannen onder het toezicht van zijn gefrustreerde moeder. Haar aandacht is echter volledig gericht op haar zoon. Want via die zoon kon de moeder haar eigen wensen verwezenlijken, want deze zoon heeft wel veel meer vrijheden in de maatschappij.
+	* In de eerste levensjaren, wanneer de psyche wordt gevormd, worden in de ogen van het kind alle belangrijke beslissingen door de moeder genomen.
+	* Een terugkerend thema is de moeder die haar zonen doodt. Voor de vrouw was de zoon in sommige gevallen als een kleine versie van de man, die ze zo hard haatte. Over de zoon had ze echter volledige controle. Er kan dus een soort projectiegedrag plaatsvinden waarbij de vrouw frustraties uitwerken op het kind.
+
+* Deze culturele veranderingen zouden ertoe geleid hebben dat de oude mythes over moedergodinnen hervormd werden naar verhalen over wrede vrouwen. Er leefde dus een angst over mature vrouwen onder de Griekse mannen.
+
+#### Odysseus. De held die de onsterfelijkheid weigert
+
+* Odysseus is een zeer attypische held. Hij moet het niet hebben van zijn kracht, maar van zijn verstand.
+* Odysseus is wel degelijk geïnteresseerd in roem, maar uiteindelijk weigert hij de ontsterfelijkheid.
+* Hij heeft een veel betere relatie met vrouwen, in tegenstelling tot andere helden.
+* Odysseus is ook geen monsterdoder.
+* In de eerste plaatst zijn de listen van Odysseus zijn primaire wapen.
+* Odysseus wou in de eerste plaats niet gaan vechten in Troje. Hij had geprobeerd de andere koningen te overtuigen dat hij waanzinnig geworden was door het zoute strand van Itaca te ploegen. Een andere slinkse koning legt Odysseus' zoon voor zijn ploeg, zodat Odysseus moet stoppen en duidelijk is dat hij niet waanzinnig is.
+* Odysseus doet er tien jaar over om terug te keren. Dit komt omdat hij de wrok van Poseidon over zich gehaald had. Dit vertelt het verhaal van Polyphemus.
+* Athena is de beschermgodin van Odysseus.
+* De Ilias en Odyssea verschillen sterk van elkaar. Bij de Ilias is de krijgslust zeer belangrijk. Het heroïsche ideaal van sterven op het slagveld zit sterk in de Ilias. Odysseus zal zelf onderweg afdalen naar de onderwereld om de weg naar huis terug te vinden. Hierbij komt hij Achilles tegen, die hem zelf zegt dat er niets roemrijks is aan sterven tijdens de oorlog. Odysseus kiest dus voor het leven, waarvan hij zoveel mogelijk wilt genieten met zijn vader, vrouw en kinderen.
+* Er zijn drie passages waar Odysseus (bijna) goddelijke krachten krijgt aangeboden.
+	* Lothophagen: Odysseus weigert een zeer gemakkelijk en aangenaam bestaan en wilt liever de moeilijke tocht aangaan om naar huis te geraken. Odysseus doel is niet gelukkig zijn, maar een zinvol leven te leiden.
