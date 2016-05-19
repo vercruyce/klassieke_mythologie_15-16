@@ -174,3 +174,11 @@ De burgers zijn echter zo geschokt door al deze gruwels waardoor Jason nog steed
 * De Ilias en Odyssea verschillen sterk van elkaar. Bij de Ilias is de krijgslust zeer belangrijk. Het heroïsche ideaal van sterven op het slagveld zit sterk in de Ilias. Odysseus zal zelf onderweg afdalen naar de onderwereld om de weg naar huis terug te vinden. Hierbij komt hij Achilles tegen, die hem zelf zegt dat er niets roemrijks is aan sterven tijdens de oorlog. Odysseus kiest dus voor het leven, waarvan hij zoveel mogelijk wilt genieten met zijn vader, vrouw en kinderen.
 * Er zijn drie passages waar Odysseus (bijna) goddelijke krachten krijgt aangeboden.
 	* Lothophagen: Odysseus weigert een zeer gemakkelijk en aangenaam bestaan en wilt liever de moeilijke tocht aangaan om naar huis te geraken. Odysseus doel is niet gelukkig zijn, maar een zinvol leven te leiden.
+
+**19/05/2016**
+
+* Odysseus zal op drie momenten een bijna ontsterfelijke toestand afwijzen in het voordeel van het gewonen mensenleven. Hij wilt liever de cyclus van leven en dood. Hij wilt gewoon terug naar zijn vader, zijn vrouw en zijn zoon.
+* lothophagen: geluk dat geen betekenis heeft, is leeg. Er moet een verhaal gelinkt zijn aan geluk. Je zou jezelf niet zijn mocht je een pilletje nemen die je permanent gelukkig maakt. Leed is een deel van het leven.
+* Tweede verleiding: eiland van Kirke (dochter van de zon). Ze geeft de mannen een drankje die hen veranderd in dieren. Dit is een metafoor voor de dierlijke verlangens in de mannen. Het is dus een lustoord.
+	* Het is Hermes die Odysseus beschermt door hem een poeder te geven die hem beschermt van de magie.
+* Ten slotte leidt Odysseus schipbreuk op het eiland Ogygia zonder zijn manschappen. Hier woont Calypso (betekent: zij die verbergt). Zij wilt Odysseus voor haarzelf houden (vandaar verbergen). Odysseus wilt echter gewoon weg. Het zijn de goden die Calypso verplichten Odysseus te laten gaan.

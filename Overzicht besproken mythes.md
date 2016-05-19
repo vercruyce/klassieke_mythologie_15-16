@@ -32,3 +32,14 @@
 * Adonis en Aphrodite
 * Demeter en Baubo
 * Isis en Osiris
+
+## Les 5
+
+## Les 6
+
+* Castor en Pollux
+* Verhaal van het offer van Agamemnon voor het vertrekt
+* Tyndareische eed
+* Verhaal van de twistappel
+* Mythe van Pygmalion
+* Mythe van Narcissus
