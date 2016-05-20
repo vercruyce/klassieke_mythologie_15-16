@@ -120,3 +120,14 @@
 * Wie zijn de spinsters: naam voor de schikgodinnen = de noodlotsgodinnen
 * In de Ilias is de schikgodin enkelvoudig, bij de Odyssea zijn er drie godinnen
 * Penelope en Helena zijn waarschijnlijk afkomstig uit deze godinnen.
+
+**20/05/2016**
+
+* Noodlotsgodin hebben de touwtjes in handen van alle verhalen, zelfs van de goden.
+* Dat is wat mythologie doet: iets ongrijpbaars begrijpbaar maken.
+* Mythologie legt abstracte begrippen vast in metaforen, iets dat als mens wel begrijpbaar is. Bloemenberg: sommige dingen kan je enkel begrijpelijk worden via een metafoor. Dat zijn absolute metaforen.
+* Absolute metafoor: iets dat je alleen maar kunt vervangen door een andere metafoor. Bijvoorbeeld het noddlot kan alleen een metafoor worden. Ook waarheid is iets dat zich alleen in metaforen laat vatten. Je kan een absolute metafoor niet vervangen door iets dat geen metafoor is. Je kan het proberen uitleggen, maar dat zal altijd gebeuren aan de hand van een andere metafoor.
+* Weven van textiel: niet alleen een beeld om het onbegrijpelijke te begrijpen, maar bevat ook een zeker troost. Het weven bevat een schoonheid, het is een ware kunst. Zelfs al valt het lot soms tegen, zelfs dan nog zal het grote verhaal betekenis hebben. Dit beeld redt mensen niet van het lot, maar biedt een manier om ermee om te gaan.
+* Het afwerken van de lijkwade van Penelope is een symbool voor het einde van Penelope's leven als echtgenote van Odysseus. Het is ook een symbool voor het einde van Odysseus leven zelf. Hij was al 20 jaar verdwenen. Ten slotte is het ook een voorafschaduwing van de dood van de vrijers van Penelope. Penelope is op dat moment dus een soort weefgodin die het lot van het verhaal zelf weeft.
+* Helena maakt de helden van de Trojaanse oorlog ontsterfelijk bij het weven.
+* Weven en liederen zijn nauw verknoopt. Weven was een zeer ritmische bezigheid.

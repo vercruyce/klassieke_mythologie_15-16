@@ -43,3 +43,8 @@
 * Verhaal van de twistappel
 * Mythe van Pygmalion
 * Mythe van Narcissus
+
+## Les 7
+
+* Oedipus
+* Tiresias en Athena
