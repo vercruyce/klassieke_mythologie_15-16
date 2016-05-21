@@ -55,7 +55,12 @@
 
 #### Hoeksteen in ons cultureel referentiekader (slide 4)
 
+* We leven in een cultuur die het heden meer benadrukt.
+	* Bv: Het journaal -> quoteert tweet
+
 #### Het belang (en gevaar!) van verhalen (slide 1)
+
+* 'The Story Wars' ~> voor reclame
 
 #### Het belang (en gevaar!) van verhalen (slide 2)
 
@@ -108,17 +113,23 @@
 		* Helden als rolmodellen
 		* Hybris: overdreven trots, hoogmoed, overmoed, grootheidswaanzin; helden overschrijven vaak grenzen.
 * **Qua functie**
-	* Bijvoorbeeld: verklaren waarom mensen moeten sterven. Verklaringen kunnen brengen vaak een zekere troost
+	* Verklaring, fundering ('aitiologische' mythen > Gr. aition = oorzaal, oorsprong) van religieuze, sociale, politieke, natuurlijke... gebruiken, instellingen en fenomenen.
+		* Bijvoorbeeld: verklaren waarom mensen moeten sterven. Verklaringen kunnen brengen vaak een zekere troost
+	* Troost en zingeving
+	* Paradigma/exemplum
+	* Reflectie, stellen van vragen, exploratie 'condition humaine'
+	* Ontspanning, vertelling
 	* Aangehaalde mythe: [Narcissus](https://nl.wikipedia.org/wiki/Narcissus_(mythologie))
 
 #### De belangrijke interactie van mythologie met andere velden...
 
 * Verschil religie - mythe:
-	* Relgie: bevat een sterk conformisme. Er zijn vaak concrete, vaste vormen van verhalen en bijhorende rituelen. Een religie bevat vaak levensregels.
+	* Religie: bevat een sterk conformisme. Er zijn vaak concrete, vaste vormen van verhalen en bijhorende rituelen. Een religie bevat vaak levensregels.
 	* Mythes: niet door een god geschreven (in tegenstelling tot bv de bijbel, woord van god). Wordt vaak op verschillende manieren verteld, en ook zo aanvaard. Geen heilig boek, waardoor er ook geen "juiste" leer is.
 
 #### Chronologie
 
+* Minoïsche beschaving (Afrikaanse achtergrond)
 * Dark ages: komst van het alfabet: mythes worden voor het eerst gefixeerd (in schrift vastgelegd). Eenmaal een mythe wordt opgeschreven, houdt hij op een "mythe te zijn", het verhaal evolueert niet verder.
 * [Ionische verlichting](https://en.wikipedia.org/wiki/Ionian_Enlightenment): De oude Grieken zelf beginnen aan godenkritiek te doen. De eerste wetenschappelijke methodes worden toegepast door de natuurfilosofen. Het pre-wetenschappelijk denken.
 
@@ -132,6 +143,10 @@
 * Ilias:
 	* De dood van Patroklos, Hektor en Achilles zijn één (symboliek in de wapenuitrusting)
 	* Achilles vertelt Priamos een verhaal wanneer deze komt smeken om het lijk van Hektor
+	* In de Ilias wordt nooit over de val van Troye verteld
 
+#### Nu moeten ook wij...: het voorbeeld van Niobe
 
-
+* Niobe:
+	* 7 zonen en 7 dochters
+	* voelde haar gelukkiger dan Leto
