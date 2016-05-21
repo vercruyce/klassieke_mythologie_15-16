@@ -4,12 +4,23 @@
 
 #### Opzet van deze les
 
-* rechts: schilderij van [Heinrich Füger](https://en.wikipedia.org/wiki/Heinrich_F%C3%BCger): Prometheus brengt het gestolen vuur naar de mensen.
+* rechts: schilderij van [Heinrich Füger](https://en.wikipedia.org/wiki/Heinrich_F%C3%BCger): Prometheus brengt het gestolen vuur naar de mensen. (Kleien beeldje vanvoor in het donker = de mensen)
 
 #### Prometheus
 
 * mythe: Prometheus als schepper van de mens
 * myhte: Prometheus en de verdeling van de offergaven
+
+* Prometheus (intelligentie) <---> Epimetheus, broer van Prometheus (domheid)
+	* combinatie ervan: de mens
+* Prometheus = trickster -> alles in de war doen lopen
+	* Andere voorbeelden van tricksters:
+		* Loki
+		* Coyota
+		* Hermes: heeft [staf met slangen](https://nl.wikipedia.org/wiki/Caduceus) (slangen ~ vereniging van tegenstelling (conjunctio oppositorum))
+		* zwarte piet: is geschminkt -> heeft iets te verbergen
+* Prometheus kreeg geen tempels etc. zoals goden, vanwege zijn dubbelzinnig karakter.
+	* kreeg wel een fakkeltocht
 
 #### Structuralistische 'mythanalyse'
 
@@ -126,7 +137,7 @@
 * Alweer kunnen we de hoop plaatsen als een scheiding tussen mens, dier en god. Goden hoeven niet te hopen. Ze hebben alles wat ze willen. Ook het dier zal niet hopen. Het ondergaat wel leven en dood, maar is niet bewust van zijn situatie. Het weet niet dat het moet sterven. De mens is dus de enige die moet sterven en lijden, en is zich daar ook nog eens van bewust. Hij is dus de enige die kan hopen.
 * Aesgulos: tragedieschrijver. Hij beschrijft hoe Prometheus wordt vastgeketend in de Kaukasus als staf voor het helpen van de mens. Elke dag komt de arend zijn lever opeten. Zeus doet dit omdat Prometheus iets weet wat Zeus niet weet. Zeus heeft zijn troon verkregen door zijn vader van de troon te stoten (die op zijn beurt hetzelfde heeft gedaan). Hij is dus alle dagen bang dat hij een zoon zal verwekken die hetzelfde bij hem zal doen. En Prometheus weet bij welke vrouw dit gaat gebeuren. Dit geheim probeert Zeus te bemachtigen door Prometheus te martelen. Prometheus staat hier symbool van de ultieme rebelse symbool.
 * Prometheus staat ook symbool voor de overgang van dier naar mens. Hij heeft het schrift en landbouw aangeleerd.
-* tuflas alpidas:
+* tuflas alpidas: blinde hoopgevoelens
 * Prometheus is ook een paradox: hij brengt wel het schrift en de landbouw, maar tegelijkertijd zorgt hij voor een breuk tussen de goden en de mensen.
 * Ook de hoop is ambigue: het is alleen omdat we hopen dat we ook kunnen lijden. Maar anderszijds maakt hopen het leven draaglijker.
 * Twee lezingen over de kruik: ofwel zat al het goede erin (in de vorm van graan) dat Pandora heeft opgeschrokt. Ofwel zat het vol met kwade dingen dat door het openen van het deksel verspreid is geraakt.
