@@ -6,7 +6,7 @@
 * eerste godenkritiek: Griekse filosofen zien dat goden van andere culturen gevormd zijn naar het beeld van die culturen. Daarom besluiten ze dat de goden door de mensen zelf zijn gevormd.
 * De klassieke Griekse goden hebben een moment van ontstaan. Ze zijn zelfs niet de eerste goden. Er bestonden goden voor de huidige generatie van goden. Deze oudere generaties goden hebben veel minder weg van mensen. Sommigen hebben dierlijke gedaantes, of hebben zelfs geen materiële vorm.
 * De Olympische goden zijn antropomorf. Ze zijn zeer menselijk in hun gedaante en gedragingen. Ze hebben zelfs menselijke gebreken.
-	* Het verschil met mensen: zijn almachtig en ontsterfelijk.
+	* Het verschil met mensen: zijn almachtig en onsterfelijk.
 	* Belangrijk: mensen zijn eigenlijk bijna goden. Ze zijn slechts een klein stapje verwijderd van het goddelijke. Dit is een zeer belangrijke thematiek in een aantal mythes.
 * Waarom zijn de Olympiërs niet de oudste goden:
 	* In de veel van de hedendaagse religies is de godheid het begin van alles. Hij is de schepper van alles en is er altijd geweest (bv ook bij christenen).
@@ -27,11 +27,12 @@
 #### Hesiodos' Theogonie: de machtsgreep van Kronos
 
 * Kronos pleegde de eerste machtsgreep onder de goden. Hij castreerde Uranus en greep de macht.
+* Kronos verslond zijn kinderen ~> "De tijd verslindt."
 * Volgens de versie van Hesiodos is [Aphrodite](https://nl.wikipedia.org/wiki/Aphrodite) geboren uit de golven van de zee uit het zaad van Kronos.
 
 #### Kronos, Vader Tijd
 
-* links: schilderij van [Giorgio Vasari](https://en.wikipedia.org/wiki/Giorgio_Vasari)	
+* links: schilderij van [Giorgio Vasari](https://en.wikipedia.org/wiki/Giorgio_Vasari)
 
 #### Hesiodos' Theogonie: de geboorte van Aphrodite
 
@@ -39,7 +40,54 @@
 
 **10/03/2016**
 
-afwezig
+#### Kort overzicht van Theogonie 233-1022
+
+* Zeus: jongste zoon, oppergod, enigste zoon die ontsnapte aan Kronos' vraatzucht
+* Poseidon: god van aardbevingen, zee
+* Hades: god van de onderwereld
+* aarde = neutraal
+* Geen verhalen over Hestia:
+	* eed van de maagdelijkheid
+	* godin van de haard/het huiselijke: 'haard' -> belangrijk principe: vuur = veilige voedende kracht
+* Tartaros = ruimte onder de onderwereld, "onder de onderwereld"
+* Semele wil als bewijs dat Zeus zich aan haar vertoont als bij Hera, waarin hij zijn goddelijkheid aantoont.
+	* Semele wordt tot as verpulverd, want de mens kan niet tegen de aanwezigheid van de bliksemschicht van Zeus. Zeus neemt kind uit haar buik en plant het in zijn dij.
+* Achilleus: gedoemd om te sterven
+* Anchises: Trojaanse prins
+	* belooft aan Aphrodite dat hij aan niemand vertelt dat zij samen hebben geslapen, want zij schaamt haar ervoor dat zij met een sterveling slaapt. Anchises kan toch niet zwijgen.
+* Odysseus: enigste held die de onsterfelijkheid afwijst.
+* Athena: maagdelijke godin
+	* weinig vrouwelijke trekken
+	* geboren met uitrusting aan
+* Apollo:
+	* god van het licht
+	* begeleider van de muzen
+	* ~ het harmonische
+* Hermes:
+	* boodschapper van de goden
+	* ~ beweeglijkheid
+	* ~ snelheid van de geest
+	* Romeins: 'Mercurius' (= snelst ronddraaiende planeet)
+* Hebe: ="jeugd"
+
+#### De 12 Olympische goden
+
+* (zijn er eigenlijk 15)
+* Poseidon en Hades zijn randgevallen en worden niet altijd bij de 12 gerekend.
+* Voor de grieken is Hades geen negatieve god, want zonder dood is er geen leven.
+
+#### De Muzen: het mythische 'waarheidsregister'
+
+* 'Geheugen' hangt zeer nauw samen met 'Rta'
+	* 'Rta' = 'waarheid' (Latijnse 'veritas')
+
+#### Een reddingspoging: rationalisering en allegorie
+
+* Tantalosuitdrukking = in de buurt komen van iets wat je wil, maar er net niet in slagen.
+
+#### Turtles all the way down. Waarom mythe geen mislukte wetenschap is.
+
+* Figuur rechtsboven: schildpad -> symbool voor zekerheid, stabiliteit
 
 **17/03/2016**
 
