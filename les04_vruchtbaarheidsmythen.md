@@ -16,7 +16,7 @@
 	* Ovidius, verteld door een muze
 	* Claudius Claudianus, niet vervolledig
 * Vooraf: de drie oppergoden hebben in het begin lootje getrokken wie welk domein verkrijgt. Zeus kreeg de hemel, Poseidon het water en Hades de onderwereld. Hades is zeer jaloers van alle avontuurtjes van zijn twee broers, terwijl hij in de onderwereld zit.
-* Persephone is een zeer bevallige godin. Demeter wilt har oogappel nog niet afstaan en verbergt haar op Sicilië. Hades liet echter zijn oog vallen op Persephone. Hij dwingt Zeus om in te stemmen met hun huwelijk (anders laat hij alle schimmen van de onderwereld los). Zeus stemt hier dus mee in. Hades schaakt daarop Persephone.
+* Persephone is een zeer bevallige godin. Demeter wilt haar oogappel nog niet afstaan en verbergt haar op Sicilië. Hades liet echter zijn oog vallen op Persephone. Hij dwingt Zeus om in te stemmen met hun huwelijk (anders laat hij alle schimmen van de onderwereld los). Zeus stemt hier dus mee in. Hades schaakt daarop Persephone.
 
 #### Demeter, Persephone en Hades (slide 1)
 
@@ -35,7 +35,7 @@
 #### Demeter, Persephone en Hades (slide 4)
 
 * Demeter vaak afgebeeld met de [cornucopia](https://en.wikipedia.org/wiki/Cornucopia).
-* Hecate is de enige godin die meeleeft met Demeters verlies.
+* Hekate is de enige godin die meeleeft met Demeters verlies.
 * Helios is diegene die uiteindelijk aan Demeter laat weten dat het haar eigen broer, Hades, is die Persephone heeft geschaakt (rechtse afbeelding).
 * Hierop vertrekt Demeter op queeste op zoek naar Persephone. Onderweg komt ze bij een koningspaar. Deze vragen aan haar om hun nieuwgeboren te voeden. Demeter, die nog rouwt om haar eigen verloren kind, stemt toe. Ze voelt zich zo verbonden met het kind dat ze probeert hem ontsterfelijk te maken door hem te lauteren in het vuur. Dit loopt echter mis wanneer de moeder hen betrapt en Demeter het kind hierdoor per ongeluk in het vuur liet vallen. Deze gebeurtenissen gaven aanleiding tot een van de belangrijkse erediensten bij de Grieken: de orgia; zie [mysteriecultus](https://nl.wikipedia.org/wiki/Mysteriecultus).
 
@@ -113,7 +113,7 @@ Thema van de les: invloed van de mythes op de rites.
 
 #### Adonis en Aphrodite // het Christelijke Pietà-motief
 
-* Maria wordt vaak afgebeeld als quasi goddelijk karakter. Ze is vaak gebasseerd op het beeld van een moedergodin uit de klassieke oudheid.
+* Maria wordt vaak afgebeeld als quasi goddelijk karakter. Ze is vaak gebaseerd op het beeld van een moedergodin uit de klassieke oudheid.
 
 **21/04/2016**
 
@@ -150,16 +150,16 @@ Thema van de les: invloed van de mythes op de rites.
 * De maretak heeft een speciale eigenschap: hij raakt niet aan de grond en hij blijft ook altijd groen. Alles dat uit de grond groeit, is schatplichtig aan de dood. De maretak staat hier echter boven. In de winter kan hij blijven groeien op bomen.
 * In de Noorse mythologie speelt de maretak een belangrijke rol in het verhaal van Balder. Dit is ook een dying and rising god. Hij is een van de meest geliefde goden. Hij heeft een heel beschermende moeder. Ze laat als aardgodig alle zaken op aarde zweren dat ze Balder nooit zouden kwetsen. Dit houdt dus in dat Balder voor niets uit de natuur kwetsbaar is. De andere goden houden er dus een spelletje in om alles uit te proberen om Balder te schaden. Geworpen stenen schaden hem bijvoorbeeld niet. Balder heeft echter ook een "Achilles hiel". Zijn moeder, Frigg, heeft echter aan de jonge, buigzame Maretak vergeten vragen om de eed af te leggen. Loki, de trickster uit dit verhaal, maakt hier gebruik van die ene zwakke plek. Hij overtuigt Hodr, de blinde broer, een pijl af te schieten gevormd uit een maretak. In heel de Noorse mythologie wordt echter verwezen naar de terugkomst van Balder bij Magnarok.
 
-* Comparatieve mythologie: vergelijkt verschillende mythologieën over heel de wereld om zo analogieen te vinden en hieruit concluties te trekken. Dying and rising gods zijn hierbij een zeer belangrijk terugkerend thema.
-* Ook christus is een Dying and Rising god, hier kon Fraze echter niet zo diep op ingaan in zijn originele druk aangezien in die tijd het christendom nog zeer sterk stond. Hij kon dus niet zomar zeggen dat christus gewoon een van de zovele goden is.
+* Comparatieve mythologie: vergelijkt verschillende mythologieën over heel de wereld om zo analogieen te vinden en hieruit conclusies te trekken. Dying and rising gods zijn hierbij een zeer belangrijk terugkerend thema.
+* Ook christus is een Dying and Rising god, hier kon Frazer echter niet zo diep op ingaan in zijn originele druk aangezien in die tijd het christendom nog zeer sterk stond. Hij kon dus niet zomar zeggen dat christus gewoon een van de zovele goden is.
 
 * Een van de rituelen die Frazer bespreekt zijn de vele licht en vuur rituelen die in de winter plaats vinden. Vaak gebeuren deze rituele op midwinter (en zomer). Deze rituelen gaan bijna allemaal over het thema dat men door de dood moet rijzen om weer tot leven terug te keren.
-* Guy Fawkes: probeerde het house of parliaments op te blazen. Volgens Frazer is het idee hierachter is dat Guy Fawkes een afstammeling van de dying and rising gods. Het oude wordt verbrand zodat het nieuwe kan herrijzen.
+* Guy Fawkes: probeerde het house of parliaments op te blazen. Volgens Frazer is het idee hierachter dat Guy Fawkes een afstammeling van de dying and rising gods is. Het oude wordt verbrand zodat het nieuwe kan herrijzen.
 
 #### Frazers invloed: de ‘Myth & Ritual School’
 
 * Jane Ellen Harrison, een van de belangrijkste vertegenwoordigers van de Cambridge Rituals
-* Deze school geloofd dat de Mythes geboren zijn uit eerder bestaande rituelen.
+* Deze school gelooft dat de Mythes geboren zijn uit eerder bestaande rituelen.
 * Harrison deed een studie over Dionysus. Hij is god van de wijn en de roes. Hij wordt hier echter afgeschilderd als een seizoensgod die staat voor het hernieuwen van de natuur.
 * Harrison breidt de theorie van Frazer uit. Ze zegt dat niet alles draait over vruchtbaarheid maar ook over overgangsrituelen. Bij veel culturen zijn bepaalde overgangen in het leven zeker even belangrijk als leven en dood. De overgang van kind naar volwassen is hierbij vaak heel belangrijk.
 
@@ -199,9 +199,9 @@ Thema van de les: invloed van de mythes op de rites.
 * Mistah Kurtz: is het hoofdpersonage in het Heart of Darkness. Hij is een geniaal man, hij draagt de gehele Europese gedachte met zich mee. Hij is als het beeld van de verlichting. Hij wilt deze ideen overbrengen naar de kolonies. Daar verdwijnt hij echter in de jungle.
 	* Waarvoor staat Mistah Kurtz in het gedicht? Hij staat voor het ineenstorten van de Europese cultuur.
 * A penny for the old guy: knipoog naar Frazer. Die oude Europese cultuur is dood, kunnen we hopen dat dit een verhaal wordt van een dying and rising god? Zal de cultuur weer uit de dood opstaan?
-* Wie zijn de Hollow man? Verschillende lezingen
+* Wie zijn de Hollow men? Verschillende lezingen
 	* De moderne mens, ontdaan van alle idealen.
-	* Overlevers van de WO I. Soldaten werden herlijdt tot kannonnenvlees. De oorlog was volledig mechanisch waar niets mythisch meer van over was. Verder was er ook geen idee achter de oorlog. Niemand wist nog waarover gevochten werd.
+	* Overlevers van de WO I. Soldaten werden herleidt tot kannonnenvlees. De oorlog was volledig mechanisch waar niets mythisch meer van over was. Verder was er ook geen idee achter de oorlog. Niemand wist nog waarover gevochten werd.
 	* Hollow man zou kunnen verwijzen naar de poppen van Guy Fawkes die verbrand worden.
 	* Grote vraag: is er een heropleving mogelijk na het enorme offer dat WO I was? Kan de cultuur weer herijzen?
 * Direct eyes:
@@ -213,6 +213,6 @@ Thema van de les: invloed van de mythes op de rites.
 
 #### Francis Ford Coppola’s Apocalypse Now (1979)
 
-* Heart of Darkness is zelf al een zeer kritisch werk. De Europese cultuur voelt zich suprieur over alle andere culturen en probeert hen te overrompelen. Heart of Darkness is het duistere hard van de jungle, het primitieve land dat Afrika is. Maar het zou ook kunnen wijzen naar de donkerheid van de gedachten van Kurtz.
+* Heart of Darkness is zelf al een zeer kritisch werk. De Europese cultuur voelt zich suprieur over alle andere culturen en probeert hen te overrompelen. Heart of Darkness is het duistere hart van de jungle, het primitieve land dat Afrika is. Maar het zou ook kunnen wijzen naar de donkerheid van de gedachten van Kurtz.
 * The horror, the horror:
-	* De laatste woorden van Kurtz. Charlie hoort dit. Wanneer Charlie terugkeert moet hij het nieuws van Kurtz dood melden aan zijn verloofde van Kurtz. Zij vraagt naar zijn laatste woorden. Charlie antwoordt hierop dat zijn laatste woorden over haar waren zodat ze gerust was. Charlie suggereert hiermee dat de echte horror niet de afrikaanse cultur is, maar de Europese cultuur zelf, die heel zijn roots verraden heeft.
+	* De laatste woorden van Kurtz. Charlie hoort dit. Wanneer Charlie terugkeert moet hij het nieuws van Kurtz dood melden aan zijn verloofde van Kurtz. Zij vraagt naar zijn laatste woorden. Charlie antwoordt hierop dat zijn laatste woorden over haar waren zodat ze gerust was. Charlie suggereert hiermee dat de echte horror niet de afrikaanse cultuur is, maar de Europese cultuur zelf, die heel zijn roots verraden heeft.
