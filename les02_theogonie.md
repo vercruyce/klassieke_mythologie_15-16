@@ -93,9 +93,9 @@
 
 #### Antropomorfisme (2): een moderne verklaring
 
-* Video: Heider - Simmel: Onderdeel van een studie (An Experimental Study of Apparent Behavior). Hierin werd aangetoond dat de mens biologisch bepaald is om overal verhalen achter te zoeken en hierbij te antromorfiseren.
+* Video: Heider - Simmel: Onderdeel van een studie (An Experimental Study of Apparent Behavior). Hierin werd aangetoond dat de mens biologisch bepaald is om overal verhalen achter te zoeken en hierbij te antropomorfiseren.
 	* dit lijkt zeer irrationeel
-	* mogelijke verklaring: wanneer je dingen gaat aanzien als wilsinstanties biedt dit een mogelijk om er controle over uit te voeren. Zo brachten de oudere culturen offers voor om bepaald goden gunstig te stemmen en zo iets te verkrijgen. Het is dus een poging om de wereld te begrijpen en te beïnvloeden
+	* mogelijke verklaring: wanneer je dingen gaat aanzien als wilsinstanties biedt dit een mogelijkheid om er controle over uit te voeren. Zo brachten de oudere culturen offers voor om bepaalde goden gunstig te stemmen en zo iets te verkrijgen. Het is dus een poging om de wereld te begrijpen en te beïnvloeden
 * boek: faces in the cloudes (van Stewart Guthrie)
 	* theorie over religie
 	* gaat over de menselijke reflex om personages te zien in allerlei zaken.

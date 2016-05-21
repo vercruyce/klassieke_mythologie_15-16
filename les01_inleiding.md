@@ -113,7 +113,7 @@
 		* Helden als rolmodellen
 		* Hybris: overdreven trots, hoogmoed, overmoed, grootheidswaanzin; helden overschrijven vaak grenzen.
 * **Qua functie**
-	* Verklaring, fundering ('aitiologische' mythen > Gr. aition = oorzaal, oorsprong) van religieuze, sociale, politieke, natuurlijke... gebruiken, instellingen en fenomenen.
+	* Verklaring, fundering ('aitiologische' mythen > Gr. aition = oorzaak, oorsprong) van religieuze, sociale, politieke, natuurlijke... gebruiken, instellingen en fenomenen.
 		* Bijvoorbeeld: verklaren waarom mensen moeten sterven. Verklaringen kunnen brengen vaak een zekere troost
 	* Troost en zingeving
 	* Paradigma/exemplum
