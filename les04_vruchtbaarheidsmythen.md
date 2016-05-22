@@ -127,12 +127,12 @@ Thema van de les: invloed van de mythes op de rites.
 
 #### Frazer en de Golden Bough: een enigmatische passage in de Aeneïs
 
-* Het verhaal van Aeneis begint bij de val van Troje. Troje is gedoemd om vernietigd te worden. Maar Aeneis zal echter de beschermgoden van Troje redden en naar een andere stad brengen. Deze stad werd later Rome. Dit epos zorgt dus voor een ontstaansrecht van de stad Rome. De oppergod, Zeus, heeft dus zelf bevolen dat Rome er moet zijn.
+* Het verhaal van Aeneis begint bij de val van Troje. Troje is gedoemd om vernietigd te worden. Maar Aeneis zal echter de beschermgoden van Troje (Penates) redden en naar een andere stad brengen. Deze stad werd later Rome. Dit epos zorgt dus voor een ontstaansrecht van de stad Rome. De oppergod, Zeus, heeft dus zelf bevolen dat Rome er moet zijn.
 * Dit epos is geschreven door Vergilius. Dit is een sterk propagandisch werk. Augustus stamt zelf uit de stam van de Julii, die direct zouden afstammen van Aeneas zelf.
 * Aeneas werd de "plichtsbewuste" genoemd, omdat hij alles opzij schoof om zijn goddelijke plicht uit te voeren en de stad te stichten.
-* Een belangrijk onderdeel van de Aeneis is het stuk waar Aeneas afdaalt in de onderwereld. Dit is vanuit het idee dat men eerst moet afdalen naar zen dieptepunt om uiteindelijk het hoogtepunt te kunnen bereiken. In de onderwereld wordt een groot deel van de toekomst van Rome getoond.
-* Aeneas wordt begeleid naar de onderwereld door xxx.
-* xxx staat voor de wijsheid. Zij weet uit ervaring dat de dood noodzakelijk is voor de mensheid. De dood is als een eikpunt om een persoonlijkheid te ontwikkelen.
+* Een belangrijk onderdeel van de Aeneis is het stuk waar Aeneas afdaalt in de onderwereld (Katabasis: afdaling naar de onderwereld). Dit is vanuit het idee dat men eerst moet afdalen naar zen dieptepunt om uiteindelijk het hoogtepunt te kunnen bereiken. In de onderwereld wordt een groot deel van de toekomst van Rome getoond.
+* Aeneas wordt begeleid naar de onderwereld door Sibylla.
+* Sibylla staat voor de wijsheid. Zij weet uit ervaring dat de dood noodzakelijk is voor de mensheid. De dood is als een eikpunt om een persoonlijkheid te ontwikkelen.
 
 #### Frazer en de Golden Bough: een enigmatische passage in de Aeneïs (slide 2)
 
@@ -167,7 +167,7 @@ Thema van de les: invloed van de mythes op de rites.
 
 * Dionysos wordt eigenlijk twee keer geboren: de eerste keer wanneer hij uit het lichaam van Semele wordt gerukt, dan wanneer hij wordt geboren uit de dij van Zeus.
 * Volgens de Orfische mysteriën wordt hij zelfs drie keer geboren. Zagreus zou oorspronkelijk door de titanen uiteen gescheurd en ze eten de delen op. Athene kan zijn hart echter redden. Uit dit hart zou later Dionysos dan geboren worden bij Semele.
-* Vervolg mythe: Zeus werpt bliksems naar de titanen en enkel hun as blijft over. Uit deze as worden later de mensen geboetseerd. De mens bevat dus zowel een deel van de oude titanen, maar ook een deel goddelijkheid, aangezien deze titanen nog een deel goddelijkheid bevatten van Zagreus. Het idee is dus dat de mensen iets goddelijks bevatten, maar een soort trigger nodig hebben om dit naar boven te halen. Het christendom is op deze mythologische ideeen ontstaan. Christus is de persoon die voor de mensen gezorgd heeft om het goddelijke deel in elke mens te bereiken.
+* Vervolg mythe: Zeus werpt bliksems naar de titanen en enkel hun as blijft over. Uit deze as worden later de mensen geboetseerd. De mens bevat dus zowel een deel van de oude titanen, maar ook een deel goddelijkheid, aangezien deze titanen nog een deel goddelijkheid bevatten van Zagreus. Het idee is dus dat de mensen iets goddelijks bevatten, maar een soort trigger nodig hebben om dit naar boven te halen. Het christendom is op deze mythologische ideeën ontstaan. Christus is de persoon die voor de mensen gezorgd heeft om het goddelijke deel in elke mens te bereiken.
 * De cultus van de tragedie was gewijd aan Dionysos. In een van de tragedien, de bachae van ..., Hij komt daar zijn neef tegen. Deze neef wilt echter niet geloven dat Dionysos een god is. Hierop trek Dionysos de stad in om mensen op te trommelen, en vooral vrouwen. Deze vrouwen trokken verwilderd de natuur in. ...
 	* ok, totaal in de war hier in de les: gaat hierover: https://en.wikipedia.org/wiki/The_Bacchae
 
