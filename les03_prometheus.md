@@ -11,7 +11,7 @@
 * mythe: Prometheus als schepper van de mens
 * myhte: Prometheus en de verdeling van de offergaven
 
-* Prometheus (intelligentie) <---> Epimetheus, broer van Prometheus (domheid)
+* Prometheus (intelligentie, vooraf denker) <---> Epimetheus, broer van Prometheus (domheid, achteraf denker)
 	* combinatie ervan: de mens
 * Prometheus = trickster -> alles in de war doen lopen
 	* Andere voorbeelden van tricksters:
@@ -19,6 +19,7 @@
 		* Coyota
 		* Hermes: heeft [staf met slangen](https://nl.wikipedia.org/wiki/Caduceus) (slangen ~ vereniging van tegenstelling (conjunctio oppositorum))
 		* zwarte piet: is geschminkt -> heeft iets te verbergen
+* Hij was een oerrebel, de eerste die zich durfde te verzetten tegen de goden.
 * Prometheus kreeg geen tempels etc. zoals goden, vanwege zijn dubbelzinnig karakter.
 	* kreeg wel een fakkeltocht
 
@@ -39,7 +40,7 @@
 
 #### Hesiodos
 
-* [Hesiodos](https://nl.wikipedia.org/wiki/Hesiodos) wordt als een van de stamvaders beschouwd van de Griekse mythologie.
+* [Hesiodos](https://nl.wikipedia.org/wiki/Hesiodos) wordt als een van de stamvaders beschouwd van de Griekse mythologie (samen met [Homerus](https://nl.wikipedia.org/wiki/Homerus)).
 * 'theogonie' en 'werken en dagen' zijn twee werken
 * Het is nog altijd niet duidelijk of Hesiodos wel degelijk een persoon was. Kan een verpersoonlijking zijn van een groep mensen.
 * Werken en dagen: boerenkalender. Handleiding voor het goede leven van een boer. Hier somt hij op wat de goede dagen zijn om te planten en te zaaien etc. Hij vertelt hier zelf een soort van kaderverhaaltje in. Zijn kwadelijke broer Perses probeert hier de erfenis naar zich toe te trekken. Hij vertelt zijn broer een verhaal over rechtvaardigheid. Het is de bedoeling dat alle mensen werken. In deze context vertelt hij ook over Prometheus.
@@ -87,6 +88,7 @@
 #### Socioculturele analyse
 
 * deze mythe vertelt waarom de wereld zo vol paradoxen zit. Er worden geen oplossingen geboden, maar een verklaring op zich kan al een zekere troost en houvast bieden.
+* aetiologische mythe = verklarende mythe: geeft antwoord op de vraag 'Waarom is iets zo?'
 * 4 essentiele zaken voor een menselijk leven:
 	* het offer
 	* het huwelijk

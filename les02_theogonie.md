@@ -85,16 +85,18 @@
 
 #### De Muzen: het mythische 'waarheidsregister'
 
-* 'Geheugen' hangt zeer nauw samen met 'Rta'
+* 'waarheidsregister': meerdere manieren om naar de waarheid te kijken. Een waarheid kan voor verschillende volkeren een verschillende invulling hebben.
+* 'Geheugen' is een steunpilaar van de maatschappij en hangt zeer nauw samen met 'Rta'
 	* 'Rta' = 'waarheid' (Latijnse 'veritas')
 
 #### Een reddingspoging: rationalisering en allegorie
 
-* Tantalosuitdrukking = in de buurt komen van iets wat je wil, maar er net niet in slagen.
+* Tantalosuitdrukking = in de buurt komen van iets wat je wil, maar er net niet bij kunnen.
 
 #### Turtles all the way down. Waarom mythe geen mislukte wetenschap is.
 
 * Figuur rechtsboven: schildpad -> symbool voor zekerheid, stabiliteit
+* Wetenschap heeft het probleem dat het nooit kan stoppen.
 
 **17/03/2016**
 
