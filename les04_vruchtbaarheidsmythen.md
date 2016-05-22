@@ -131,7 +131,7 @@ Thema van de les: invloed van de mythes op de rites.
 * Dit epos is geschreven door Vergilius. Dit is een sterk propagandisch werk. Augustus stamt zelf uit de stam van de Julii, die direct zouden afstammen van Aeneas zelf.
 * Aeneas werd de "plichtsbewuste" genoemd, omdat hij alles opzij schoof om zijn goddelijke plicht uit te voeren en de stad te stichten.
 * Een belangrijk onderdeel van de Aeneis is het stuk waar Aeneas afdaalt in de onderwereld (Katabasis: afdaling naar de onderwereld). Dit is vanuit het idee dat men eerst moet afdalen naar zen dieptepunt om uiteindelijk het hoogtepunt te kunnen bereiken. In de onderwereld wordt een groot deel van de toekomst van Rome getoond.
-* Aeneas wordt begeleid naar de onderwereld door Sibylla.
+* Aeneas wordt begeleid naar de onderwereld door [Sibylla](https://nl.wikipedia.org/wiki/Sibille).
 * Sibylla staat voor de wijsheid. Zij weet uit ervaring dat de dood noodzakelijk is voor de mensheid. De dood is als een eikpunt om een persoonlijkheid te ontwikkelen.
 
 #### Frazer en de Golden Bough: een enigmatische passage in de Aeneïs (slide 2)
