@@ -38,11 +38,11 @@
 - De tragedie draait vaak rond de beperking van menselijke kennis. Maar net die beperktheid maken tragedies over mensen het verhaal ontroerender dan eender welke tragedie over goden.
 - Context van de tragedies: werden georganiseerd door de staat tijdens de hoogdagen van de Atheense democratie. Deze waren gratis toegankelijk voor alle burgers. Het was een centrale gebeurtenis voor heel de polis.
 - De tragedie is de kunst van de dialoog. Er waren altijd botstende stemmen in een tragedie. Het was daarom in het belang van de Atheense staat om zijn burgers hier op te oefenen. Het verheffen van de stem was een belangrijke drijfveer in de democratie.
-- Ook een belangrijk thema in de tragedies: de mens is voor een groot deel verantwoordelijk voor zijn eigen lot. De tragedies gingen vaak over het thema hoe om te gaan met deze verantwoordelijk.
+- Ook een belangrijk thema in de tragedies: de mens is voor een groot deel verantwoordelijk voor zijn eigen lot. De tragedies gingen vaak over het thema hoe om te gaan met deze verantwoordelijkheid.
 - Opkomend van de godenkritiek was ongeveer in dezelfde periode. Orakeluitspraken werden veel minder ernstig genomen gedurende die tijd. De goden kregen veel minder de rol toegeschreven van de schrijvers van het lot. Mensen stonden hierzelf voor in.
 - God als schepping van de mens: "mochten paarden goden kunnen bedenken, zouden deze een paardenhoofd hebben."
 - Nieuw mensbeeld: mens gelooft dat hij de wereld kan zien en begrijpen met zijn eigen verstand. De mythe van Oedipus introduceert dit gedachtegoed in het persoon van Oedipus. Het is echter een kritische kijk op het nieuw denkbeeld.
-- Oedipus verwijt Tiresias dat hij als ziener van² de goden niet eens in staat was om het raadsel op te lossen.
+- Oedipus verwijt Tiresias dat hij als ziener van de goden niet eens in staat was om het raadsel op te lossen.
 
 ### Oedipus tussen zelfbeschikking en noodlot
 
@@ -64,7 +64,7 @@
 
 - Oedipus wordt een prototype van westerse denkers. De vadermoord is een beeld voor het breken met de traditie. Hij gaat ook alleen voort op zijn eigen verstand.
 - tragedie van het westerse denken: na de vadermoord, het breken met de traditie, blijf je ongeworteld achter.
-- deprojectie is een belangrijke stap in de menselijke geschiedenis. De mens begint in te zien dat hij de schepper is van de goden en niet omgekeerd.
+- de projectie is een belangrijke stap in de menselijke geschiedenis. De mens begint in te zien dat hij de schepper is van de goden en niet omgekeerd.
 - Descarte: "je pense donce je suis"
   - Niets behalve het eigen verstand is een betrouwbare bron. Hierbij kan Descarte gezien worden als een moderne Oedipus.
 - Nietzsche: verklaart god dood: pleegt op deze manier dus de ultieme vadermoord. Hij breekt volledig met alle voorgaande traditie. Geen bijbel meer om op te steunen, zelfs geen koning die het recht heeft op te heersen. Een moord op de hele wersterse wereld. De mens blijft als een heel eenzaam wezen, die alles op zichzelf moet doen.
