@@ -27,7 +27,7 @@
 #### Hesiodos' Theogonie: de machtsgreep van Kronos
 
 * Kronos pleegde de eerste machtsgreep onder de goden. Hij castreerde Uranus en greep de macht.
-* Kronos verslond zijn kinderen ~> "De tijd verslindt."
+* Kronos verslond zijn kinderen ~> "De tijd verslindt alles wat het voortbrengt."
 * Volgens de versie van Hesiodos is [Aphrodite](https://nl.wikipedia.org/wiki/Aphrodite) geboren uit de golven van de zee uit het zaad van Kronos.
 
 #### Kronos, Vader Tijd
@@ -43,10 +43,15 @@
 #### Kort overzicht van Theogonie 233-1022
 
 * Zeus: jongste zoon, oppergod, enigste zoon die ontsnapte aan Kronos' vraatzucht
+* Hera: godin van het huwelijk, zeer negatief personage
 * Poseidon: god van aardbevingen, zee
 * Hades: god van de onderwereld
+	* voor de grieken: geen negatieve god
+	* Pluto bij de Romeinen: afgeleid van rijkdom
+* Demeter: aardgodin
 * aarde = neutraal
 * Geen verhalen over Hestia:
+	* niet avontuurlijk
 	* eed van de maagdelijkheid
 	* godin van de haard/het huiselijke: 'haard' -> belangrijk principe: vuur = veilige voedende kracht
 * Tartaros = ruimte onder de onderwereld, "onder de onderwereld"
@@ -54,17 +59,19 @@
 	* Semele wordt tot as verpulverd, want de mens kan niet tegen de aanwezigheid van de bliksemschicht van Zeus. Zeus neemt kind uit haar buik en plant het in zijn dij.
 * Achilleus: gedoemd om te sterven
 * Anchises: Trojaanse prins
-	* belooft aan Aphrodite dat hij aan niemand vertelt dat zij samen hebben geslapen, want zij schaamt haar ervoor dat zij met een sterveling slaapt. Anchises kan toch niet zwijgen.
+	* belooft aan Aphrodite dat hij aan niemand vertelt dat zij samen hebben geslapen, want zij schaamt haar ervoor dat zij met een sterveling slaapt. Anchises kan toch niet zwijgen en wordt als straf blind.
 * Odysseus: enigste held die de onsterfelijkheid afwijst.
 * Athena: maagdelijke godin
 	* weinig vrouwelijke trekken
-	* geboren met uitrusting aan
+	* geboren uit de schedel van Zeus (met uitrusting aan)
 * Apollo:
 	* god van het licht
 	* begeleider van de muzen
 	* ~ het harmonische
 * Hermes:
 	* boodschapper van de goden
+	* een van de weinige goden die de drempel tussen wereld en onderwereld mocht overschrijden
+	* begeleider van de zielen naar de onderwereld (psychopomp )
 	* ~ beweeglijkheid
 	* ~ snelheid van de geest
 	* Romeins: 'Mercurius' (= snelst ronddraaiende planeet)
