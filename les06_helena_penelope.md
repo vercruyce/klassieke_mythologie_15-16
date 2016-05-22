@@ -19,16 +19,16 @@
   * Weerspiegelt het ideaalbeeld van de maatschappij van het kunstwerk
   * Helena: betekent +- stralend licht; komt etymologisch van het woord voor maangodin. Ze was oorspronkelijk waarschijnlijk ook een godin
   * Wordt ook de Venus onder de mensen genoemd
-  * De fakkel, waarmee ze vak afgebeeld wordt, is ook een symbool voor de ondergang en het platbranden van Troje
+  * De fakkel, waarmee ze vaak afgebeeld wordt, is ook een symbool voor de ondergang en het platbranden van Troje
 * Paris, prins van Troje, is de man die haar schaakte. Ze was oorspronkelijk getrouwd met Menelaüs, koning van Mycene.
 
 #### afkomst
 
 * er zijn twee versies van haar afkomst.
-* Zeus wordt weer verliefd op een sterfelijke vrouw, Leda. Hij veranderd zich in de vorm van een zwaan en verleidde haar. Hieruit komen twee eieren voort. Uit het eerste ei komt het broederpaar Castor en Pollux voort. UIt het andere Helena en Clytaemnestra.
+* Zeus wordt weer verliefd op een sterfelijke vrouw, Leda. Hij verandert zich in de vorm van een zwaan en verleidde haar. Hieruit komen twee eieren voort. Uit het eerste ei komt het broederpaar Castor en Pollux voort. UIt het andere Helena en Clytaemnestra.
 * Clytaemnestra zal in de mythologie de naam krijgen van de onbetrouwbare vrouw.
 * Penelope is de enige sterfelijke dochter van Zeus. Zij is het toonbeeld van de ideale vrouw.
-* Helena wordt begeert door alle koningen van Griekenland. Om conflicten te voorkomen heeft Odysseus raadt gegeven aan de vader van Helena, Tyndareus. Dit is de Tyndareische eed: alle koningen beloven dat Helena zelf een man mag kiezen uit haar minnaars. Alle koningen moeten die keuze respecteren en moeten zweren de gekozen man te beschermen in conflicten om Helena.
+* Helena wordt begeert door alle koningen van Griekenland. Om conflicten te voorkomen heeft Odysseus raad gegeven aan de vader van Helena, Tyndareus. Dit is de Tyndareische eed: alle koningen beloven dat Helena zelf een man mag kiezen uit haar minnaars. Alle koningen moeten die keuze respecteren en moeten zweren de gekozen man te beschermen in conflicten om Helena.
 * Verhaal van de twistappel
 * Op het huwelijk van Thetis en Peleus zijn alle goden en godinnen uitgenodigd, behalve Eris, de twistgodin. Uit wrok smijt ze een gouden appel in de menigte met het opschrift "voor de mooiste". Hera, Athena en Aphrodite twisten om deze appel. Zeus wilt geen oordeel te uiten. Daarom gaan de godinnen en Hermes naar een herder, die Paris blijkt te zijn. Deze was verstoten door zijn ouders omdat er een profetie was die voorspeld had dat hij de ondergang van Troje ging betekenen. Paris koos voor Aphrodite.
 
@@ -39,7 +39,7 @@
 #### De ontvoering door Paris. Vrijwillig of niet?
 
 * In sommige versies wordt Helena door Paris geroofd. In de meeste versies wordt ze echter verliefd op Paris en gaat vrijwillig mee.
-* Dit is een terugkerend thema: is de mens nog vrij wanneer de Goden zich moeien? Blijf je nog vrij wanneer je wanhopig verliefd bent? Is de mens vrij ten opzichte van het goddelijke in zichtzelf
+* Dit is een terugkerend thema: is de mens nog vrij wanneer de Goden zich moeien? Blijf je nog vrij wanneer je wanhopig verliefd bent? Is de mens vrij ten opzichte van het goddelijke in zichzelf
 * Gedicht van Sappho
   * De vaasschildering toont hoe zowel Paris als Helena beïnvloed worden door de goden. Paris wordt gewezen op Helena en Aphorodite gaat letterlijk op Helena's schoot zitten.
 
@@ -74,7 +74,7 @@
 
 #### Helena als gender-vraagstuk: wat is een vrouw?
 
-* Mnaier waarop vrouwelijkheid wordt geconstucteerd in de mythologie: de ultieme vrouw in de mythes bevat altijd een leegte. Vaak is het slechts een uiterlijke schijn. Helena is altijd gehuld in een soort sluier.
+* Manier waarop vrouwelijkheid wordt geconstucteerd in de mythologie: de ultieme vrouw in de mythes bevat altijd een leegte. Vaak is het slechts een uiterlijke schijn. Helena is altijd gehuld in een soort sluier.
 * Het vrouwelijke is doorheen de geschiedenis vaak als negatief beeld afgeschilderd. Daardoor gaan vrouwen in de mythologie vaak mannelijke patronen aannemen, die dan wenselijk schijnen te zijn. Maar dit gedrag wordt dan gezien als een soort verraad tegenover hun vrouwelijkheid.
 * Hoe kan je de vrouwelijkheid betekenis geven buiten de stereotype beelden?
 
@@ -104,7 +104,7 @@
 * List van het weefgetouw: Penelope heeft moeite om alle minnaars van zich af te houden. Ze zegt dat ze eerst de lijkwade van Odysseus moet weven, maar 's nachts rafelt ze het terug uit.
 * Wanneer Odysseus terugkeert moet hij afrekenen met alle minnaars. Hij gaat vermomd als een bedelaar naar zijn huis. Ondertussen is de list van het weefgetouw doorzien, en moet Penelope een echtgenote kiezen. Ze zegt echter dat ze alleen wilt trouwen met iemand die net als Odysseus een pijl kan schieten door 10 bijl ijzers. Odysseus slaagt hier in als vermomde bedelaar en doodt daarna de vrijers. Penelope is echter nog niet overtuigd en wilt nog eens testen of het zeker Odysseus is. Ze zegt tegen een diesntmaagd om hun bed op de gang te zetten voor Odysseus. Odysseus roept hierop dat dat onmogelijk is, aangezien hij dat bed zelf gehouwen had uit een olijfboom, en zelfs de goden dit amper zouden kunnen verzetten. Hierop weet Penelope dat hij echt Odysseus.
 * Het onverzetbare bed is een metafoor voor de trouw van Penelope binnen hun huwelijk.
-* Het huwelijksbed is het hard van de kosmos voor Odysseus. Odysseus bleef zijn identiteit behouden zolang dat bed daar verankerd staat.
+* Het huwelijksbed is het hart van de kosmos voor Odysseus. Odysseus bleef zijn identiteit behouden zolang dat bed daar verankerd staat.
 * Odysseus is het toonbeeld van de meest flexibele man. Hij reist de hele wereld rond. Penelope is dan weer het toonbeeld voor de standvastigheid.
 * Odysseus komt in de onderwereld Agamemnon tegen, die tegen dan al vermoord was door zijn vrouw. Agamemnon stelt Odysseus echter gerust en doet een lofzang over de standvastigheid van Penelope en haar trouw.
 * Penelope vraagt aan Odysseus om vergiffenis dat ze zo koel was bij hun hereniging, maar ze was op haar hoede voor het noodlot dat ook Helena is overkomen. Ze toont dus ook een soort medelijden voor Helena.
@@ -129,5 +129,5 @@
 * Absolute metafoor: iets dat je alleen maar kunt vervangen door een andere metafoor. Bijvoorbeeld het noddlot kan alleen een metafoor worden. Ook waarheid is iets dat zich alleen in metaforen laat vatten. Je kan een absolute metafoor niet vervangen door iets dat geen metafoor is. Je kan het proberen uitleggen, maar dat zal altijd gebeuren aan de hand van een andere metafoor.
 * Weven van textiel: niet alleen een beeld om het onbegrijpelijke te begrijpen, maar bevat ook een zeker troost. Het weven bevat een schoonheid, het is een ware kunst. Zelfs al valt het lot soms tegen, zelfs dan nog zal het grote verhaal betekenis hebben. Dit beeld redt mensen niet van het lot, maar biedt een manier om ermee om te gaan.
 * Het afwerken van de lijkwade van Penelope is een symbool voor het einde van Penelope's leven als echtgenote van Odysseus. Het is ook een symbool voor het einde van Odysseus leven zelf. Hij was al 20 jaar verdwenen. Ten slotte is het ook een voorafschaduwing van de dood van de vrijers van Penelope. Penelope is op dat moment dus een soort weefgodin die het lot van het verhaal zelf weeft.
-* Helena maakt de helden van de Trojaanse oorlog ontsterfelijk bij het weven.
+* Helena maakt de helden van de Trojaanse oorlog onsterfelijk bij het weven.
 * Weven en liederen zijn nauw verknoopt. Weven was een zeer ritmische bezigheid.
