@@ -48,6 +48,8 @@
 * Hades: god van de onderwereld
 	* voor de grieken: geen negatieve god
 	* Pluto bij de Romeinen: afgeleid van rijkdom
+* Hecate: godin van o.a. de kruispunten
+	* Er is een soort van gevaar/magie verbonden met kruispunten. Een overgang van de ene plaats naar de andere. Dat is waar de dingen onduidelijk zijn.
 * Demeter: aardgodin
 * aarde = neutraal
 * Geen verhalen over Hestia:
@@ -71,7 +73,7 @@
 * Hermes:
 	* boodschapper van de goden
 	* een van de weinige goden die de drempel tussen wereld en onderwereld mocht overschrijden
-	* begeleider van de zielen naar de onderwereld (psychopomp )
+	* begeleider van de zielen naar de onderwereld (psychopomp)
 	* ~ beweeglijkheid
 	* ~ snelheid van de geest
 	* Romeins: 'Mercurius' (= snelst ronddraaiende planeet)
@@ -109,7 +111,7 @@
 	* theorie over religie
 	* gaat over de menselijke reflex om personages te zien in allerlei zaken.
 * Waarom doen we dit?
-	* Darwinistische verklaring. Als oermens heb je er altijd iets aan te winnen als je voortdurend op zoek bent naar menselijke vormen, of algemener, naar de meest betenisvolle interpretatie. Het voorbeeld hiervan is de boulder or bear theorie. Stel je een oermens voor die in de verte iets ziet dat lijkt als een rots, maar het kan even goed een beer zijn. De verstandigste keuze is dan van de meest extreme veronderstelling vanuit te gaan en het als een beer te zien.
+	* Darwinistische verklaring. Als oermens heb je er altijd iets aan te winnen als je voortdurend op zoek bent naar menselijke vormen, of algemener, naar de meest betekenisvolle interpretatie. Het voorbeeld hiervan is de boulder or bear theorie. Stel je een oermens voor die in de verte iets ziet dat lijkt als een rots, maar het kan even goed een beer zijn. De verstandigste keuze is dan van de meest extreme veronderstelling vanuit te gaan en het als een beer te zien.
 * Het is haast onmogelijk om antropomorfismen volledig te vermijden.
 	* mensen hebben deze vermenselijkte beelden nodig van zaken om de wereld te begrijpen.
 	* zelfs in de meest droge wetenschappelijke artikels vind je vormen van antropomorfismen terug (bv beschrijven gedrag van atomen alsof ze een eigen wil zouden hebben)
