@@ -21,6 +21,7 @@
 
 * Vormen een belangrijk deel van onze cultuur
 * Vanaf de renaissance zijn mythes een algemeen referentiekader: iedereen kent de verhalen. Gebruikt als kapstok voor andere kunst en verhalen.
+* Het over de aard van de mens hebben als fabulerend wezen.
 
 #### Hoeksteen in ons cultureel referentiekader (slide 1)
 
@@ -40,6 +41,7 @@
 	* Kunstwerk centraal: Actaeon III, Berlinde De Bruyckere, Performance recht-onder: Romeu My Deer, Berlinde De Bruyckere (Danser: Romeu Runa)
 
 	> Actaeon is een jager die samen met zijn honden op jacht is. Tijdens zijn tocht komt hij Artemis tegen die samen met haar nimfen aan het baden is aan een bron. Omdat het een sterfelijke man niet is toegestaan Artemis naakt te zien, verandert ze hem in een hert. Daarop wordt hij opgejaagd en verscheurd door zijn eigen honden, die hun meester niet meer herkennen.
+
 * Mythologie is een onderzoeksveld. Waarom vertellen mensen over heel de wereld zo'n verhalen? Mensen denken en communiceren via verhalen.
 * In volgende onderzoeksgebieden is mythologie relevant:
 	* [Antropologie](https://en.wikipedia.org/wiki/Anthropology)
@@ -125,7 +127,7 @@
 
 * Verschil religie - mythe:
 	* Religie: bevat een sterk conformisme. Er zijn vaak concrete, vaste vormen van verhalen en bijhorende rituelen. Een religie bevat vaak levensregels.
-	* Mythes: niet door een god geschreven (in tegenstelling tot bv de bijbel, woord van god). Wordt vaak op verschillende manieren verteld, en ook zo aanvaard. Geen heilig boek, waardoor er ook geen "juiste" leer is.
+	* Mythes: niet door een god geschreven (in tegenstelling tot bv de bijbel, woord van god). Wordt vaak op verschillende manieren verteld, en ook zo aanvaard. Geen heilig boek, waardoor er ook geen "juiste" leer is. Het zijn geen verhalen neergepend door de goden, maar over de goden.
 
 #### Chronologie
 
@@ -143,7 +145,7 @@
 * Ilias:
 	* De dood van Patroklos, Hektor en Achilles zijn één (symboliek in de wapenuitrusting)
 	* Achilles vertelt Priamos een verhaal wanneer deze komt smeken om het lijk van Hektor
-	* In de Ilias wordt nooit over de val van Troye verteld
+	* In de Ilias wordt nooit over de val van Troye verteld. Een minder epos had dit nog expliciet moeten vertellen.
 
 #### Nu moeten ook wij...: het voorbeeld van Niobe
 
