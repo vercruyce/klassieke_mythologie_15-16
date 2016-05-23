@@ -3,18 +3,18 @@
 #### Deze les
 
 * Het verkrijgen van voedsel was in die tijd een zeer belangrijk deel van het leven. Een misoogst kon verschrikkelijke gevolgen hebben. Daarom dat vruchtbaarheidsmythen een groot onderdeel van mythes vormen.
-* Vruchtbaarheid werd na verloop van tijd veel ruimer genomen dan enkel myhtes over de landbouw. Het gaat in het algemeen over de cyclus van het leven en de dood.
+* Vruchtbaarheid werd na verloop van tijd veel ruimer genomen dan enkel mythes over de landbouw. Het gaat in het algemeen over de cyclus van het leven en de dood.
 * Een belangrijk idee: de mensen krijgen in eerste instantie alles van de goden. Uiteindelijk moeten we al het geleende teruggeven. Dit idee zit in de offergaven, maar ook in het feit dat we ons lichaam moeten teruggeven aan de aarde (en de goden) na onze dood.
 
 #### Demeter en Persephone
 
 * Centraal thema van mythe: de link tussen het leven en de dood.
-* Een van de weinige mythes waarin er een innige band tussen twee vrouwen voortkomt. In de meeste mythes gaan vrouwen met elkaar in conflict.
+* Een van de weinige mythes waarin er een innige band tussen twee vrouwen voorkomt. In de meeste mythes gaan vrouwen met elkaar in conflict.
 * Homerische hymne: een loflied om de goden gunstig te stemmen.
 	* De Homerische hymne voor demeter is een van de oudste en belangrijkste
 * Twee voorname schriftelijke bronnen voor deze mythe:
 	* Ovidius, verteld door een muze
-	* Claudius Claudianus, niet vervolledig
+	* Claudius Claudianus, niet vervolledigd
 * Vooraf: de drie oppergoden hebben in het begin lootje getrokken wie welk domein verkrijgt. Zeus kreeg de hemel, Poseidon het water en Hades de onderwereld. Hades is zeer jaloers van alle avontuurtjes van zijn twee broers, terwijl hij in de onderwereld zit.
 * Persephone is een zeer bevallige godin. Demeter wilt haar oogappel nog niet afstaan en verbergt haar op Sicilië. Hades liet echter zijn oog vallen op Persephone. Hij dwingt Zeus om in te stemmen met hun huwelijk (anders laat hij alle schimmen van de onderwereld los). Zeus stemt hier dus mee in. Hades schaakt daarop Persephone.
 
@@ -75,7 +75,7 @@ Thema van de les: invloed van de mythes op de rites.
 	* dromena (handelingen):
 	* legomena (woorden): dit is de reden waarom barabaren niet konden deelnemen.
 	* hiëra (heilige voorwerpen): enkel speculaties hierover: zouden kunnen gaan over landbouwvoorwerpen, of over gestilleerde beeldjes van mannen en vrouwen.
-* De toorst draagt het opbranden van het leven in zich. Een sterke symboliek alweer over de dood.
+* De toorts draagt het opbranden van het leven in zich. Een sterke symboliek alweer over de dood.
 * Grappen vormen een belangrijk onderdeel uit van de mysteriën. Deze grappen hebben vooral een link met een extra onderdeel van de mythe over Demeter. Wanneer Persephone geroofd werd door Hades was Demeter troosteloos. Enkel [Baubo](https://en.wikipedia.org/wiki/Baubo) slaagde er met haar grappen in om Demeter op te vrolijken.
 * speciale drank ([Kykeon](https://en.wikipedia.org/wiki/Kykeon)): zou misschien kunnen gaan over een drank op basis van de papaver. Deze plant was ook gewijd aan Demeter.
 
@@ -127,7 +127,7 @@ Thema van de les: invloed van de mythes op de rites.
 
 #### Frazer en de Golden Bough: een enigmatische passage in de Aeneïs
 
-* Het verhaal van Aeneis begint bij de val van Troje. Troje is gedoemd om vernietigd te worden. Maar Aeneis zal echter de beschermgoden van Troje (Penates) redden en naar een andere stad brengen. Deze stad werd later Rome. Dit epos zorgt dus voor een ontstaansrecht van de stad Rome. De oppergod, Zeus, heeft dus zelf bevolen dat Rome er moet zijn.
+* Het verhaal van Aeneas begint bij de val van Troje. Troje is gedoemd om vernietigd te worden. Maar Aeneas zal echter de beschermgoden van Troje (Penates) redden en naar een andere stad brengen. Deze stad werd later Rome. Dit epos zorgt dus voor een ontstaansrecht van de stad Rome. De oppergod, Zeus, heeft dus zelf bevolen dat Rome er moet zijn.
 * Dit epos is geschreven door Vergilius. Dit is een sterk propagandisch werk. Augustus stamt zelf uit de stam van de Julii, die direct zouden afstammen van Aeneas zelf.
 * Aeneas werd de "plichtsbewuste" genoemd, omdat hij alles opzij schoof om zijn goddelijke plicht uit te voeren en de stad te stichten.
 * Een belangrijk onderdeel van de Aeneis is het stuk waar Aeneas afdaalt in de onderwereld (Katabasis: afdaling naar de onderwereld). Dit is vanuit het idee dat men eerst moet afdalen naar zen dieptepunt om uiteindelijk het hoogtepunt te kunnen bereiken. In de onderwereld wordt een groot deel van de toekomst van Rome getoond.
@@ -143,14 +143,14 @@ Thema van de les: invloed van de mythes op de rites.
 * Pausanias zegt dat de eerste priester daar Hippolytus was. Dit was een zoon van Theseus en een Amazone. Hippolytus aanbiedt boven alle goden Artemis, de godin van het woud en de jacht en het ongetemde. Daarom weigert hij alle vormen van seksualiteit en wilt enkel jagen. Theseus' vrouw sterft en trouwt dan met Phaedra. Deze wordt echter verliefd op Hippolytus. Hippolytus blijft echter bij zijn principes. Phaedra vertelt uit jaloezie aan Theseus dat Hippolytus haar verkracht heeft. Theseus vervloekt in woede zijn eigen zoon. De god Posseidon, vader van Theseus, stuurt een zeemonster af op Hippolytus, waar zijn paarden van schrikken en hem uiteindelijk vertrappelen. Aesclepius brengt hem echter weer terug uit de dood.
 * Dit is dus alweer een voorbeeld van de dying and rising gods. Een oervrees van de mens is dat de natuur na de winter niet meer zal herijzen. Alle mythes worden verteld in de hoop om zo controle over de natuur te krijgen en te verzekeren dat hij weer heropleeft na de winter.
 * Frazer zegt dat het idee van dying and rising god het kernidee is van
-* Simpatische magie: je voert rituelen uit waarbij je iets imiteert dat je hoopt te verwezelijken. Denk aan voodoo popjes, om iemand pijn toe te brengen.
+* Sympatische magie: je voert rituelen uit waarbij je iets imiteert dat je hoopt te verwezelijken. Denk aan voodoo popjes, om iemand pijn toe te brengen.
 * De priester is een verpersoonlijking van de natuur. Hij staat voor de kracht van de natuur. Wanneer hij oud wordt, beeldt hij de natuur in de winter uit. Er komt dan echter een nieuwere, sterker priester, die de oude verslaat. Zo ook in de natuur, die nadat hij zijn kracht verliest opgevolgd wordt door een sterkere lente.
 * Wat heeft deze tak er nu mee te maken? Dit kan volgens Frazer niet anders zijn dan de maretak. Deze plant is speciaal want hij heeft geen wortels. Hij groeit altijd om een andere boom.
 * Ook de christelijke natuur zijn deze rituelen overgenomen. De kerstboom is een "evergreen". We plaatsten hem in de winter om zeker te zijn dat de natuur zich weer kan vernieuwen en weer groen worden.
 * De maretak heeft een speciale eigenschap: hij raakt niet aan de grond en hij blijft ook altijd groen. Alles dat uit de grond groeit, is schatplichtig aan de dood. De maretak staat hier echter boven. In de winter kan hij blijven groeien op bomen.
 * In de Noorse mythologie speelt de maretak een belangrijke rol in het verhaal van Balder. Dit is ook een dying and rising god. Hij is een van de meest geliefde goden. Hij heeft een heel beschermende moeder. Ze laat als aardgodig alle zaken op aarde zweren dat ze Balder nooit zouden kwetsen. Dit houdt dus in dat Balder voor niets uit de natuur kwetsbaar is. De andere goden houden er dus een spelletje in om alles uit te proberen om Balder te schaden. Geworpen stenen schaden hem bijvoorbeeld niet. Balder heeft echter ook een "Achilles hiel". Zijn moeder, Frigg, heeft echter aan de jonge, buigzame Maretak vergeten vragen om de eed af te leggen. Loki, de trickster uit dit verhaal, maakt hier gebruik van die ene zwakke plek. Hij overtuigt Hodr, de blinde broer, een pijl af te schieten gevormd uit een maretak. In heel de Noorse mythologie wordt echter verwezen naar de terugkomst van Balder bij Magnarok.
 
-* Comparatieve mythologie: vergelijkt verschillende mythologieën over heel de wereld om zo analogieen te vinden en hieruit conclusies te trekken. Dying and rising gods zijn hierbij een zeer belangrijk terugkerend thema.
+* Comparatieve mythologie: vergelijkt verschillende mythologieën over heel de wereld om zo analogieën te vinden en hieruit conclusies te trekken. Dying and rising gods zijn hierbij een zeer belangrijk terugkerend thema.
 * Ook christus is een Dying and Rising god, hier kon Frazer echter niet zo diep op ingaan in zijn originele druk aangezien in die tijd het christendom nog zeer sterk stond. Hij kon dus niet zomar zeggen dat christus gewoon een van de zovele goden is.
 
 * Een van de rituelen die Frazer bespreekt zijn de vele licht en vuur rituelen die in de winter plaats vinden. Vaak gebeuren deze rituele op midwinter (en zomer). Deze rituelen gaan bijna allemaal over het thema dat men door de dood moet rijzen om weer tot leven terug te keren.
