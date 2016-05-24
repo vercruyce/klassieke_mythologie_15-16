@@ -7,7 +7,7 @@
 * In de Griekse mythologie zijn helden bijna altijd dubbelzinnig.
 	* enerzijds is hij een redder,
 	* anderzijds ligt hij heel vaak in conflict: met zichzelf, met de goden, met de gemenschap en heel vaak ook met de vrouw.
-* Het beeld op de eerste slide is Heracles. Bekend van zijn twaalf werken. Een van die taken is het halen van de appels van de nespeniden. In hun tuin zouden gouden appels groeien. Heracles moet deze appels aan het einde van de wereld gaan halen. Die tuin werd bewaakt door een onverslaagbare draak. Daarna moest hij ook nog passeren aan de titaan Atlas. Deze heeft de taak gekregen om de hemel naar boven te houden. Atlas is ook de vader van de nespeniden. Heracles vraagt dan aan Atlas of hij de appels wilt gaan halen bij zijn dochters. Die gaat akkoord als Heracles even de hemel wilt overnemen. Hierna wilt Atlas de hemel niet meer overnemen van Heracles. Heracles redt zich hieruit door eerst aan Atlas te vragen of hij even een touw rond zijn schouders mag binden om hem te helpen bij zijn last. Atlas neemt dan nog eventjes de hemel over, waarop Heracles vertrekt.
+* Het beeld op de eerste slide is Heracles. Bekend van zijn twaalf werken. Een van die taken is het halen van de appels van de Hesperiden. In hun tuin zouden gouden appels groeien. Heracles moet deze appels aan het einde van de wereld gaan halen. Die tuin werd bewaakt door een onverslaagbare draak. Daarna moest hij ook nog passeren aan de titaan Atlas. Deze heeft de taak gekregen om de hemel naar boven te houden. Atlas is ook de vader van de Hesperiden. Heracles vraagt dan aan Atlas of hij de appels wilt gaan halen bij zijn dochters. Die gaat akkoord als Heracles even de hemel wilt overnemen. Hierna wilt Atlas de hemel niet meer overnemen van Heracles. Heracles redt zich hieruit door eerst aan Atlas te vragen of hij even een touw rond zijn schouders mag binden om hem te helpen bij zijn last. Atlas neemt dan nog eventjes de hemel over, waarop Heracles vertrekt.
 * De derde persoon op de eerste slide is Athena. Zij helpt Heracles bij het dragen van de Hemel. Heracles denkt dat hij de hemel zelf draagt, terwijl de godin achter zijn rug hem eigenlijk helpt.
 * Heel vaak is de held een voorbeeld. Hij is een uitvergroting van de dagdagelijkse man, en toont hoe hij door het leven zou moeten gaan.
 * Heracles: drie attributen:
@@ -15,7 +15,7 @@
 	* boog
 	* leeuwenvel. Komt van de Nymeische leeuw. Het doden van deze leeuw was een van zijn taken.
 	* Het beeld van Heracles met leeuwenvel getooid is typerend. Helden zijn in de eerste plaats vaak monsterdoders: draken, leeuwen, ... De held strijd vaak met het monster, maar heeft er eigenlijk ook iets mee gemeen, namelijk de brute kracht en het geweld. Dus vaak is ook de vraag of de held ook het monster in zichzelf kan beheersen.
-* De held kan in de mythologie vaak geen vrede vinden. Vaak staat hij op gespannen voet met de goden. Dit komt omdat de meeste helden halfgoden zijn. Ze kunnen dus meer dan gewone mense. Hij is dus heel dicht bij het godelijke. Hij is bijna onsterfelijk. Hieruit komt vaak hoogmoed voort. Hij denkt dat hij slechts een kleine stap hoeft te zetten om het godendom te bereiken. Dit wordt dan door de goden afgestraft.
+* De held kan in de mythologie vaak geen vrede vinden. Vaak staat hij op gespannen voet met de goden. Dit komt omdat de meeste helden halfgoden zijn. Ze kunnen dus meer dan gewone mensen. Hij is dus heel dicht bij het godelijke. Hij is bijna onsterfelijk. Hieruit komt vaak hoogmoed voort. Hij denkt dat hij slechts een kleine stap hoeft te zetten om het godendom te bereiken. Dit wordt dan door de goden afgestraft.
 * De held is vaak diegene die uit chaos orde schept: een moeras leegleggen, een stad stichten, een uitvinding doen...
 
 ### Nog in te delen
@@ -35,13 +35,13 @@
 
 #### Het Gilgamesj-epos
 
-* Naam betekent: hij die in de diepte zag
+* Naam betekent: 'hij die de diepte zag'
 * Vaak aanvaard als het oudste literaire werk
 * Paradigmatisch verhaal: veel overeenkomsten met de trojaanse oorlog en de mythes daar rond. Dit is niet verwonderlijk, aangezien ze van culturen kwamen die elkaar in die regio ontmoeten.
 * Gilgamesj wordt afgebeeld met een leeuw
 * Gilgamesj is koning van de stad Uruk. Hij is 2/3 god, 1/3 mens. Dus net niet goddelijk. Dit idee blijft terugkeren.
 * De mens bevat in de mythologie sowieso al iets goddelijks (denk de mythe van het as waaruit de mens werd geboetseerd). Dit reflecteert een algemeen gevoel bij de mens: hij ziet dat hij zoveel meer kan dan het dier, maar uiteindelijk slaagt hij er niet in de sterfelijkheid te overwinnen.
-* Enkidu werd door de goden gecreeert als gelijke voor Gilgamesj, die zijn eigen volk terroriseerde. Gilgamesj en Enkidu vochten met elkaar, wat een gelijkstand opleverde waarna ze beste vrienden werden. Gilgamesj stuurt daarna een tempel prostituee op hem af. In veel culturen komt dit terug, om de vruchtbaarheidsgodin te eren. Enkidu wordt menselijk nadat hij met deze priesteres heeft geslapen. Bij de dood van Enkidu vervloekt hij de priesteres die hem sterfelijk heeft gemaakt. Maar de goden herinneren hem eraan dat de menselijkheid hem veel vreugde heeft opgeleverd, waarop Enkidu de priesteres zegent ipv vervloekt.
+* Enkidu werd door de goden gecreëerd als gelijke voor Gilgamesj, die zijn eigen volk terroriseerde. Gilgamesj en Enkidu vochten met elkaar, wat een gelijkstand opleverde waarna ze beste vrienden werden. Gilgamesj stuurt daarna een tempel prostituee op hem af. In veel culturen komt dit terug, om de vruchtbaarheidsgodin te eren. Enkidu wordt menselijk nadat hij met deze priesteres heeft geslapen. Bij de dood van Enkidu vervloekt hij de priesteres die hem sterfelijk heeft gemaakt. Maar de goden herinneren hem eraan dat de menselijkheid hem veel vreugde heeft opgeleverd, waarop Enkidu de priesteres zegent ipv vervloekt.
 * Terwijl Gilgamesj samen met Enkidu onderweg is, komt hij Ishtar tegen (een zeer machtige godin van de liefde, maar ook de dood en de vruchtbaarheid). Ishtar wordt verliefd op Gilgamesj, maar deze weigert haar. Gekrengt stuurt Ishtar de Hemelstier op hen af. Maar ook deze wordt door Gilgamesj en Enkidu verslagen. Ishtar pleit bij de goden dat de twee te machtig en overmoedig zijn geworden, en de goden geven haar gelijk en beslissen dat Enkidu moet sterven. Dit verlies kan Gilgamesj niet aan, en hij gaat op zoek naar de onsterfelijkheid. Onderweg komt hij Siduri, de godin van de levensvreugde tegen. Deze raadt hem aan niet op zoek te gaan naar onsterfelijkheid. Uiteindelijk komt hij bij Utnaptishtim terecht. Van hem krijgt hij de onsterfelijkheid, als hij eerst de slaap kan overwinnen. Gilgamesj slaagt er niet in om wakker te blijven, dus kan hij al zeker de onsterfelijkheid niet verkrijgen. Net zoals bij de Grieken is de slaap hier het kleinere broertje van de dood.
 
 #### Perseus
@@ -88,7 +88,7 @@
 * Herakles wordt als enige held opgenomen als een god na zijn dood. De goden houden volgens de mythe een schijngeboorte, waarbij Herakles vanonder Hera's rok kroop. Hierna verzoende Hera en Herakles zich.
 * Herakles werd soms afgeschilderd als een komisch figuur, een schertsfiguur. Als een soort Obelix, sterk maar zeer onwetend.
 * In andere opvoeringen was hij een tragische held.
-* Herakles was een patroonheilige van de Stoichijnen. Herakles heeft heel zijn leven geleden maar is altijd plichtsbewust geweest. Dit is een van de grootste idealen volgens de Stoa.
+* Herakles was een patroonheilige van de Stoïcijnen. Herakles heeft heel zijn leven geleden maar is altijd plichtsbewust geweest. Dit is een van de grootste idealen volgens de Stoa.
 * Schilderij met de twee vrouwen:
 	* Deze vrouwen zijn een allegorie van de deugd en de ondeugd.
 	* De ondeugd (rechts) toont een makkelijke, rustige weg, vol wereldlijkse geneugden. De deugd toont een stijl bergpad. Uiteindelijk maakt Herakles de juiste keuze, en kiest voor de deugd. Deze weg brengt hem uiteindelijk bij zijn doel.
@@ -112,7 +112,7 @@
 * Theseus is ook de doder van de Minotaurus.
 	* De koning van Kreta, Minos, krijgt van Poseidon een prachtige stier cadeau om aan hem te offeren. Hij weigert echter dit dier te doden. Als straf laat Poseidon Minos' vrouw verliefd worden op de stier. Ze laat Daedalus een machine bouwen zodat ze met de stier kan vrijen. Hieruit wordt de Minotaurus geboren. Minos laat dit monster opsluiten in een labyrint. Enzovoort...
 * In de Minoïsche beschaving kwam het symbool van de stier heel vaak terug. Het is nog niet volledig duidelijk waarvoor dit stond, maar heel waarschijnlijk stond het voor de koninklijke macht. Deze mythe heeft dus een heel sterke archeologische onderbouwing.
-* Waarvoor is het labyrint een methafoor?
+* Waarvoor is het labyrint een metafoor?
 	* Een plaats waar je op zoek gaat naar je zelf. Je moet het dierlijke en monsterlijke in jezelf controleren.
 * Theseus neemt Ariadne mee naar Athene, maar laat haar onderweg op een eiland achter. Op de kust klaagt ze over Theseus die haar verlaten heeft. De god Dionysus (die zelf uit een sterfelijke moeder geboren is), komt haar tegen en wordt verliefd op haar. Ze wordt zijn bruid.
 	* Ook dit huwelijk kan een metafoor zijn voor het huwelijk met de waanzin (waar Dionysus ook een god van was). Het kan dus ook betekenen dat Ariadne haar verstand verliest.
@@ -124,7 +124,7 @@
 
 #### Jason
 
-* Ook Jason heeft problemen met vrouwen. Hij heeft ook af te rekenen met een koning die hem zijn rechten niet gunt. Zijn vader was door zijn oom van de troon gestoten. Jason gaat daarom naar zijn oom om zijn rechtmatige plaats op te eisen. Onderweg komt hij een oud vrouwtje tegen die er niet in slaagt om een rivier over te steken. Jason helpt haar oversteken en verliest hierbij een sandaal. Dit vrouwtje blijkt Hera te zijn, die vanaf dan Jason zal bijstaan. Uiteindelijk komt hij bij zijn oom aan. Deze had van een orakel gehoord dat hij zijnn einde zou vinden door een man met één sandaal. Daarom geeft de oom Jason de taak om het gulden vlies te halen, een taak waarvan gedacht werd dat niemand het zou overleven. Om deze taak te volbrengen verzamelt Jason alle grote Griekse helden, de Argonauten. (lees verhaal van de Argonauten en hun tocht). Uiteindelijk komen ze in Colcisch aan waar het gulden vlies bewaard wordt door koning Aietes. Deze wilt het vlies geven aan Jason, als hij zich waardig toont. Hij moet hiervoor de ossen mennen, die vuurspuwden. Jason kan niet slagen in deze proef, daarom helpt Hera hem. Hera gooit het op een akkoord met Aphorodite, die de dochter van Aietes, Medea, op Jason verliefd laat worden. Medea helpt Jason bij zijn proeven en verraad haar eigen vader hierbij. Nadat de proeven gelukt zijn, neemt Jason Medea met zich mee.
+* Ook Jason heeft problemen met vrouwen. Hij heeft ook af te rekenen met een koning die hem zijn rechten niet gunt. Zijn vader was door zijn oom van de troon gestoten. Jason gaat daarom naar zijn oom om zijn rechtmatige plaats op te eisen. Onderweg komt hij een oud vrouwtje tegen die er niet in slaagt om een rivier over te steken. Jason helpt haar oversteken en verliest hierbij een sandaal. Dit vrouwtje blijkt Hera te zijn, die vanaf dan Jason zal bijstaan. Uiteindelijk komt hij bij zijn oom aan. Deze had van een orakel gehoord dat hij zijn einde zou vinden door een man met één sandaal. Daarom geeft de oom Jason de taak om het gulden vlies te halen, een taak waarvan gedacht werd dat niemand het zou overleven. Om deze taak te volbrengen verzamelt Jason alle grote Griekse helden, de Argonauten. (lees verhaal van de Argonauten en hun tocht). Uiteindelijk komen ze in Colchis aan waar het gulden vlies bewaard wordt door koning Aietes. Deze wilt het vlies geven aan Jason, als hij zich waardig toont. Hij moet hiervoor de ossen mennen, die vuurspuwden. Jason kan niet slagen in deze proef, daarom helpt Hera hem. Hera gooit het op een akkoord met Aphrodite, die de dochter van Aietes, Medea, op Jason verliefd laat worden. Medea helpt Jason bij zijn proeven en verraad haar eigen vader hierbij. Nadat de proeven gelukt zijn, neemt Jason Medea met zich mee.
 Wanneer ze terug bij zijn oom komen, neemt deze het vlies aan, maar staat de troon niet af. Medea doodt de oom in Jasons plaats. Ze maakt hem wijs dat ze hem kan verjongen door hem in stukken te kappen en te koken.
 De burgers zijn echter zo geschokt door al deze gruwels waardoor Jason nog steeds niet koning kan worden. Hij krijgt echter nog een kans om de kroon te verkrijgen door te trouwen met een prinses. Daarom verstoot Jason Medea. Medea is woedend en dood hun beide kinderen en vlucht dan weg met een span getrokken door vuurspuwende draken.
 * Hoe komt het dat Medea met zo een daad wegkomt? In het origineel verhaal was Medea waarschijnlijk niet het monsterachtig figuur zoals in deze versie. Medea is waarschijnlijk ontstaan uit een oude moedergodin. Deze staat dus voor het geven en nemen van het leven en de levenscyclus. Dit zou bij de Grieken naar deze versie geëvolueerd zijn.
@@ -137,7 +137,7 @@ De burgers zijn echter zo geschokt door al deze gruwels waardoor Jason nog steed
 * Hera wilt dus Zeus straffen door ook zelf een kind te verwekken. Hier komt het monster Typhon uit voort (hier blijkt dus ook weer de Griekse vrouwenhaat: als Zeus het doet, komt er een godin uit voort, bij Hera een monster). Dit monster is zo krachtig dat hij er zelfs in slaagt om Zeus' bliksem af te nemen. Zeus heeft uiteindelijk een sterveling nodig om het monster te kunnen overwinnen. Dit zal Kadmos zijn. Deze speelt met zijn luit de draak in slaap, waarop hij de bliksem terug kan stelen en de pezen van het monster doorsnijdt. Met hernieuwde krachten kan Zeus hem doden.
 * Helden zijn als een soort miniatuurversie van de scheppende goden. Dit heeft ook een nadeel: ze staan als mens het dichtste bij het godendom, waardoor ze vaak overmoedig (hubris) worden. Hij probeert zich de onsterfelijkheid toe te eigenen.
 
-* De held is als een soort tussenwezen. In de eerste plaats heeft de polis hem nodig om uit de chaos orde te scheppen. Achteraf komt de held zelf in conflict met de polis omdat hij zelf het monsterlijke in zcih heeft. Hij is vaak meer of mindere dan de gewone mens.
+* De held is als een soort tussenwezen. In de eerste plaats heeft de polis hem nodig om uit de chaos orde te scheppen. Achteraf komt de held zelf in conflict met de polis omdat hij zelf het monsterlijke in zich heeft. Hij is vaak meer of mindere dan de gewone mens.
 * De Centauren en de Amazonen staan voor de verstoring van het universum. De mannelijke held moet zegenvieren om de orde te scheppen.
 
 * De centaur Chiron verschrijnt in verschillende verhalen op als een leermeester. Hij staat voor een wijsheid die in het primaire, dierlijke verborgen zit.
@@ -163,7 +163,7 @@ De burgers zijn echter zo geschokt door al deze gruwels waardoor Jason nog steed
 
 #### Odysseus. De held die de onsterfelijkheid weigert
 
-* Odysseus is een zeer attypische held. Hij moet het niet hebben van zijn kracht, maar van zijn verstand.
+* Odysseus is een zeer atypische held. Hij moet het niet hebben van zijn kracht, maar van zijn verstand.
 * Odysseus is wel degelijk geïnteresseerd in roem, maar uiteindelijk weigert hij de onsterfelijkheid.
 * Hij heeft een veel betere relatie met vrouwen, in tegenstelling tot andere helden.
 * Odysseus is ook geen monsterdoder.
