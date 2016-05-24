@@ -38,9 +38,9 @@
 ## Les 6
 
 * Castor en Pollux
-* Verhaal van het offer van Agamemnon voor het vertrekt
-* Tyndareische eed
-* Verhaal van de twistappel
+* Het offeren van Iphigenia door Agamemnon voor het vertrekt
+* Tyndareïsche eed
+* Verhaal van de twistappel (huwelijk van Thetis en Peleus)
 * Mythe van Pygmalion
 * Mythe van Narcissus
 
