@@ -98,15 +98,14 @@ Thema van de les: invloed van de mythes op de rites.
 * Aphrodite is godin van de liefde.
 * Schilderij: John William Waterhouse, The Awakening Of Adonis [link](http://www.wikiart.org/en/john-william-waterhouse/the-awakening-of-adonis-1899)
 
+#### Adonis en Aphrodite (slide 2)
+
 #### De stervende god(innenliefjes)
 
 * [Isis](https://nl.wikipedia.org/wiki/Isis_(godin)) en [Osiris](https://nl.wikipedia.org/wiki/Osiris_(mythologie))
 * Het vrouwelijk deel van dit verhaal is de aardgodin en het mannelijke deel komt te sterven. Isis is een vorm van moedergodin (vergelijk met Demeter). Osiris leert de landbouw van Isis kennen en deelt dit met de mensen. Seth, een kwalijke god, is jaloers op hun geluk en dood Osiris. Hij kapt zijn lijk in stukken en verspreidt het over heel Egypte. Isis trekt daarop jaren door het land om alle stukken terug te vinden en brengt zo Osiris terug tot leven. Enkel de fallus ontbreekt nog, en dit zorgt volgens het verhaal voor de vruchtbaarheid van de aarde. Osiris wordt daarom altijd gemumificeerd en groen gekleurd weergegeven. Hij is ook de god die over de onderwereld waakt.
 
 #### De stervende god(innenliefjes) (slide 2)
-
-*
-#### Adonis en Aphrodite (slide 2)
 
 * Adonis komt voort uit een tragische liefde. (mythe van Myrrha en Kinyras).
 * Adonis wordt geboren uit de myrreboom. Hij is de mooiste jongen op heel de aarde. (zie mythe Adonis en Aphrodite)

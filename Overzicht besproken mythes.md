@@ -35,6 +35,16 @@
 
 ## Les 5
 
+* Heracles + zijn twaalf werken
+* De vijf mensengeslachten (van Hesiodos)
+* De god [Zagreus](https://en.wikipedia.org/wiki/Zagreus)
+* Perseus
+* Hylas
+* Koning Minos en de Minotaurus
+* Theseus
+* Jason, de Agronauten en het gulden vlies
+* Scylla en Charybdis
+
 ## Les 6
 
 * Castor en Pollux
@@ -43,6 +53,7 @@
 * Verhaal van de twistappel (huwelijk van Thetis en Peleus)
 * Mythe van Pygmalion
 * Mythe van Narcissus
+* Omzwervingen van Odysseus
 
 ## Les 7
 
