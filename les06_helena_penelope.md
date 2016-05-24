@@ -46,12 +46,12 @@
 #### In Troje: Helena in de Ilias
 
 * Homeros is een van de grootste bronnen over Helena.
-* Bijzonder attypische afschildering: Helena is een kwetsbare vrouw met een tragisch verhaal. Ze heeft helemaal niet gevraagd om haar schoonheid.
+* Bijzonder atypische afschildering: Helena is een kwetsbare vrouw met een tragisch verhaal. Ze heeft helemaal niet gevraagd om haar schoonheid.
 * Eigenlijk heeft Helena niet eens zo een grote rol in het verhaal. Homeros schrijft dat Helena niet eens meer de reden is waarom de Grieken bleven vechten. Ergens in het verhaal waren de Grieken en de Trojanen in onderhandeling. Daar riep een Griekse koning dat zelfs het teruggeven van Helena niets meer zou uitmaken, Troje is gedoemd.
 * "Vreselijk lijkt ze op de godinnen": de schoonheid is een soort vloek die over haar rust. De mensen zijn bang van het goddelijke in haar
 * Ze is zeer eenzaam in die vreemde stad. Ze werd tegelijk geliefd maar ook gehaat, want ze brengt de wrok van de Grieken over Troje.
-* Op een bepaald punt vechten Menelaus en Paris om Helena. Paris dreigt dit gevecht te verliezen maar Aphorodite redt hem. Ze brengt hem naar zijn slaapvertrek en gaat dan, vermomd als oud vrouwtje, Helena halen. Helena heeft echter door wie ze voor zich heeft en wilt niet meer de speelbal zijn van de Goden.
-* Helena is een weefster, net zoals Penelope. Op een bepaald moment wordt beschreven dat Helena haar eigen verhaal aan het wezen was op een purper doek. Dit purper is in de Ilias een verwijzing naar al het bloed. Het is dus een soort schuldbetuigenis van Helena omdat ze zoveel leed heeft veroorzaakt. Bij de Ilias is weven echter ook vaak de beeldspraak voor het weven van plannen, listen en oorlog in het algemeen. Helena wordt dus afgeschilderd als de wever van het leed.
+* Op een bepaald punt vechten Menelaus en Paris om Helena. Paris dreigt dit gevecht te verliezen maar Aphrodite redt hem. Ze brengt hem naar zijn slaapvertrek en gaat dan, vermomd als oud vrouwtje, Helena halen. Helena heeft echter door wie ze voor zich heeft en wilt niet meer de speelbal zijn van de Goden.
+* Helena is een weefster, net zoals Penelope. Op een bepaald moment wordt beschreven dat Helena haar eigen verhaal aan het weven was op een purper doek. Dit purper is in de Ilias een verwijzing naar al het bloed. Het is dus een soort schuldbetuigenis van Helena omdat ze zoveel leed heeft veroorzaakt. Bij de Ilias is weven echter ook vaak de beeldspraak voor het weven van plannen, listen en oorlog in het algemeen. Helena wordt dus afgeschilderd als de wever van het leed.
 
 #### Na de val van Troje
 
@@ -87,22 +87,22 @@
 
 #### Poster voor Mad Men
 
-* Don Draper staat voor een etalge raam.
+* Don Draper staat voor een etalage raam.
 * Je weet niet naar wat Don kijkt: naar de reclame, naar zichzelf, naar het vrouwbeeld of naar de hele scene en herkent hij zichzelf. Een lege pop zonder enige inhoud, dat telkens hetzelfde verleidingsverhaaltje opvoert.
-* Don draper is als reclameman de opwekker van verlangen. Daarom komt zijn beeld overeen met de positie van Cupido.
+* Don draper is als reclameman, de opwekker van verlangen. Daarom komt zijn beeld overeen met de positie van Cupido.
 * (video)
 * mythes terug te vinden in de poster:
   * Mythe van Pygmalion.
   * Narcissus
-  * Helena die haar geladen afwerpt wanneer ze Menelaus terugziet
+  * Helena die haar gewaden afwerpt wanneer ze Menelaus terugziet.
 
 ## Deel 2: Penelope
 
 * Helena en Penelope verschillen op zeer veel vlakken. Helena blijft echter een zeer passief figuur. Penelope lijkt eerder passief, maar zal haar lot zelf actief besturen.
-* Als echtgenoot van Odysseus is ze zijn vrouwelijke tegenhanger. Ze is ook zeer intellegent.
-* Ze staat ook voor de trouwe echtgenoot. Ze blijft trouw ondanks het feit dat Odysseus zo lang van huis was.
+* Als echtgenoot van Odysseus is ze zijn vrouwelijke tegenhanger. Ze is ook zeer intelligent.
+* Ze staat ook voor de trouwe echtgenote. Ze blijft trouw ondanks het feit dat Odysseus zo lang van huis was.
 * List van het weefgetouw: Penelope heeft moeite om alle minnaars van zich af te houden. Ze zegt dat ze eerst de lijkwade van Odysseus moet weven, maar 's nachts rafelt ze het terug uit.
-* Wanneer Odysseus terugkeert moet hij afrekenen met alle minnaars. Hij gaat vermomd als een bedelaar naar zijn huis. Ondertussen is de list van het weefgetouw doorzien, en moet Penelope een echtgenote kiezen. Ze zegt echter dat ze alleen wilt trouwen met iemand die net als Odysseus een pijl kan schieten door 10 bijl ijzers. Odysseus slaagt hier in als vermomde bedelaar en doodt daarna de vrijers. Penelope is echter nog niet overtuigd en wilt nog eens testen of het zeker Odysseus is. Ze zegt tegen een diesntmaagd om hun bed op de gang te zetten voor Odysseus. Odysseus roept hierop dat dat onmogelijk is, aangezien hij dat bed zelf gehouwen had uit een olijfboom, en zelfs de goden dit amper zouden kunnen verzetten. Hierop weet Penelope dat hij echt Odysseus.
+* Wanneer Odysseus terugkeert moet hij afrekenen met alle minnaars. Hij gaat vermomd als een bedelaar naar zijn huis. Ondertussen is de list van het weefgetouw doorzien, en moet Penelope een echtgenote kiezen. Ze zegt echter dat ze alleen wilt trouwen met iemand die net als Odysseus een pijl kan schieten door 10 bijl ijzers. Odysseus slaagt hier in als vermomde bedelaar en doodt daarna de vrijers. Penelope is echter nog niet overtuigd en wilt nog eens testen of het zeker Odysseus is. Ze zegt tegen een dienstmaagd om hun bed op de gang te zetten voor Odysseus. Odysseus roept hierop dat dat onmogelijk is, aangezien hij dat bed zelf gehouwen had uit een olijfboom, en zelfs de goden dit amper zouden kunnen verzetten. Hierdoor weet Penelope dat hij echt Odysseus is.
 * Het onverzetbare bed is een metafoor voor de trouw van Penelope binnen hun huwelijk.
 * Het huwelijksbed is het hart van de kosmos voor Odysseus. Odysseus bleef zijn identiteit behouden zolang dat bed daar verankerd staat.
 * Odysseus is het toonbeeld van de meest flexibele man. Hij reist de hele wereld rond. Penelope is dan weer het toonbeeld voor de standvastigheid.
@@ -123,10 +123,10 @@
 
 **20/05/2016**
 
-* Noodlotsgodin hebben de touwtjes in handen van alle verhalen, zelfs van de goden.
+* Noodlotsgodinnen hebben de touwtjes in handen van alle verhalen, zelfs van de goden.
 * Dat is wat mythologie doet: iets ongrijpbaars begrijpbaar maken.
 * Mythologie legt abstracte begrippen vast in metaforen, iets dat als mens wel begrijpbaar is. Bloemenberg: sommige dingen kan je enkel begrijpelijk worden via een metafoor. Dat zijn absolute metaforen.
-* Absolute metafoor: iets dat je alleen maar kunt vervangen door een andere metafoor. Bijvoorbeeld het noddlot kan alleen een metafoor worden. Ook waarheid is iets dat zich alleen in metaforen laat vatten. Je kan een absolute metafoor niet vervangen door iets dat geen metafoor is. Je kan het proberen uitleggen, maar dat zal altijd gebeuren aan de hand van een andere metafoor.
+* Absolute metafoor: iets dat je alleen maar kunt vervangen door een andere metafoor. Bijvoorbeeld het noodlot kan alleen een metafoor worden. Ook waarheid is iets dat zich alleen in metaforen laat vatten. Je kan een absolute metafoor niet vervangen door iets dat geen metafoor is. Je kan het proberen uitleggen, maar dat zal altijd gebeuren aan de hand van een andere metafoor.
 * Weven van textiel: niet alleen een beeld om het onbegrijpelijke te begrijpen, maar bevat ook een zeker troost. Het weven bevat een schoonheid, het is een ware kunst. Zelfs al valt het lot soms tegen, zelfs dan nog zal het grote verhaal betekenis hebben. Dit beeld redt mensen niet van het lot, maar biedt een manier om ermee om te gaan.
 * Het afwerken van de lijkwade van Penelope is een symbool voor het einde van Penelope's leven als echtgenote van Odysseus. Het is ook een symbool voor het einde van Odysseus leven zelf. Hij was al 20 jaar verdwenen. Ten slotte is het ook een voorafschaduwing van de dood van de vrijers van Penelope. Penelope is op dat moment dus een soort weefgodin die het lot van het verhaal zelf weeft.
 * Helena maakt de helden van de Trojaanse oorlog onsterfelijk bij het weven.
