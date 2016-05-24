@@ -1,6 +1,6 @@
 # Overzicht besproken mythes
 
-## Les 1
+## Les 1: Inleiding
 
 * Odysseus en de sirenen
 * Pan en Syrinx
@@ -9,7 +9,7 @@
 * Narcissus
 * Ilias
 
-## Les 2
+## Les 2: Theogonie
 
 * Verhaal oergoden: Chaos, Uranus en Gaia, machtsgreep van Kronos,...
 * De geboorte van Aphrodite
@@ -18,14 +18,14 @@
 * De geboorte van Athena
 * ... (afwezig)
 
-## Les 3
+## Les 3: Prometheus
 
 * Prometheus als schepper van de mens
 * Prometheus en de verdeling van de offergaven
 * De diefstal van het vuur
 * De doos van Pandora
 
-## Les 4
+## Les 4: Vruchtbaarheidsmythes
 
 * Demeter en Persephone
 * Myrrha en Kinyras
@@ -33,18 +33,29 @@
 * Demeter en Baubo
 * Isis en Osiris
 
-## Les 5
+## Les 5: De held
 
-## Les 6
+* Heracles + zijn twaalf werken
+* De vijf mensengeslachten (van Hesiodos)
+* De god [Zagreus](https://en.wikipedia.org/wiki/Zagreus)
+* Perseus
+* Hylas
+* Koning Minos en de Minotaurus
+* Theseus
+* Jason, de Agronauten en het gulden vlies
+* Scylla en Charybdis
+
+## Les 6: Helena en Persephone
 
 * Castor en Pollux
-* Verhaal van het offer van Agamemnon voor het vertrekt
-* Tyndareische eed
-* Verhaal van de twistappel
+* Het offeren van Iphigenia door Agamemnon voor het vertrekt
+* Tyndareïsche eed
+* Verhaal van de twistappel (huwelijk van Thetis en Peleus)
 * Mythe van Pygmalion
 * Mythe van Narcissus
+* Omzwervingen van Odysseus
 
-## Les 7
+## Les 7: Oedipus
 
 * Oedipus
 * Tiresias en Athena

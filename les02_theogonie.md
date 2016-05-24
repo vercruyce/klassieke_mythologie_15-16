@@ -1,6 +1,6 @@
 # Les 2: Theogonie
 
-### DEEL 1: De geboorte van de goden
+## Deel I: De geboorte van de goden
 
 * "Naar hun beeld": kan twee betekenissen hebben: mens naar het beeld van de goden, of omgekeerd?
 * eerste godenkritiek: Griekse filosofen zien dat goden van andere culturen gevormd zijn naar het beeld van die culturen. Daarom besluiten ze dat de goden door de mensen zelf zijn gevormd.
@@ -84,6 +84,8 @@
 * (zijn er eigenlijk 15)
 * Poseidon en Hades zijn randgevallen en worden niet altijd bij de 12 gerekend.
 * Voor de grieken is Hades geen negatieve god, want zonder dood is er geen leven.
+
+## Deel II: Geloofden ze dat nu echt?
 
 #### De Muzen: het mythische 'waarheidsregister'
 
