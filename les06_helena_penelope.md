@@ -7,7 +7,7 @@
 #### Eerste slide
 
 * Poster van Mad Men
-* Links staat de klassieke huisvrouw ([Jackie Kennedy](Kennedy)) en rechts het sekssymbool ([Marilyn Monroe](https://nl.wikipedia.org/wiki/Marilyn_Monroe))
+* Links staat de klassieke huisvrouw ([Jackie Kennedy](https://nl.wikipedia.org/wiki/Jacqueline_Kennedy_Onassis)) en rechts het sekssymbool ([Marilyn Monroe](https://nl.wikipedia.org/wiki/Marilyn_Monroe))
 * In de serie waren de mannen in gesprek. Ze probeerden de vrouwen op te delen in de twee categorieën
 * Ook in onze cultuur zijn er mythes terug te vinden: verhalen die een soort structuur in het leven aanreiken.
   * Deze verhalen kunnen een keurslijf worden.
