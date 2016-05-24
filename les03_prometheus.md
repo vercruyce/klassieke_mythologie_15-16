@@ -99,8 +99,6 @@
 
 **24/03/2016**
 
-### Vervolg les 3:
-
 #### Uitleg bij verschillende slides
 
 * Er heeft een feest plaatsgevonden voor goden en mensen (bij verhaal van bedrog met offergave). Het veld speelt zich af op een papaverveld. Verwijzing naar de droomrealiteit waarin het verhaal zich afspeelde (ni vrai, ni faux).

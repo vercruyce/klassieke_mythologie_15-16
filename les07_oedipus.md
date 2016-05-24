@@ -2,6 +2,8 @@
 
 **20/05/2015**
 
+## Deel I: Mythe van Oedipus
+
 #### Slide 1
 
 - Indleidende TED talk: [Alain de Botton: A kinder, gentler philosophy of success](https://www.ted.com/talks/alain_de_botton_a_kinder_gentler_philosophy_of_success#t-6978)
@@ -47,7 +49,7 @@
 - Nieuw mensbeeld: de mens gelooft dat hij de wereld kan zien en begrijpen met zijn eigen verstand. De mythe van Oedipus introduceert dit gedachtegoed in het personage van Oedipus. Het is echter een kritische kijk op het nieuw denkbeeld.
 - Oedipus verwijt Tiresias dat hij als ziener van de goden niet eens in staat was om het raadsel op te lossen.
 
-### Oedipus tussen zelfbeschikking en noodlot
+#### Oedipus tussen zelfbeschikking en noodlot
 
 - Tragedie gaat op zoek naar diegene die de uiteindelijke schuld heeft in de mythe van Oedipus.
   - sommige lezingen stellen dat het nog de wraak van de sfinx is die doorwerkt.

@@ -1,10 +1,14 @@
 # Les 4: deel 1: Vruchtbaarheidsmythen en -riten
 
+## Deel I: vruchtbaarheidsmythes
+
 #### Deze les
 
 * Het verkrijgen van voedsel was in die tijd een zeer belangrijk deel van het leven. Een misoogst kon verschrikkelijke gevolgen hebben. Daarom dat vruchtbaarheidsmythen een groot onderdeel van mythes vormen.
 * Vruchtbaarheid werd na verloop van tijd veel ruimer genomen dan enkel mythes over de landbouw. Het gaat in het algemeen over de cyclus van het leven en de dood.
 * Een belangrijk idee: de mensen krijgen in eerste instantie alles van de goden. Uiteindelijk moeten we al het geleende teruggeven. Dit idee zit in de offergaven, maar ook in het feit dat we ons lichaam moeten teruggeven aan de aarde (en de goden) na onze dood.
+
+### Demeter en Persephone
 
 #### Demeter en Persephone
 
@@ -93,6 +97,8 @@ Thema van de les: invloed van de mythes op de rites.
 * Een van de weinige mythes die kritisch zijn over de patriarchale cultuur van de Grieken. In de meeste mythes zijn vrouwen rivalen van elkaar die continu in ruzie zijn. In deze mythe is echte solidariteit terug te vinden tussen vrouwen.
 * Rituele context van de mythe: voor ons voelt de mythe compleet anders aan dan voor de oude Grieken. Zij kenden hun connectie met de rites die erond plaatsvonden. Dit creëerde een sterke band binnen hun eigen maatschappij. Het individueel verhaal werd gekoppeld aan een collectief verhaal. De dood is iets dat iedereen overkomt. Geeft een soort troost: een individu kan sterven, maar het grotere geheel blijft bestaan. De dood is niet het einde van alles. De cyclus van leven en dood blijft doorgaan.
 
+### Adonis en Aphrodite
+
 #### Adonis en Aphrodite (slide 1)
 
 * Aphrodite is godin van de liefde.
@@ -116,7 +122,7 @@ Thema van de les: invloed van de mythes op de rites.
 
 **21/04/2016**
 
-## Les 4, deel 2: Frazer en zijn invloed
+## Deel II: Theorie en interpretatie (Frazer)
 
 #### Deze les
 

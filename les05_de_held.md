@@ -1,4 +1,4 @@
-# Les 6: De held en zijn paradoxen
+# Les 5: De held en zijn paradoxen
 
 **28/04/2016**
 
@@ -48,6 +48,8 @@
 * Enkidu werd door de goden gecreëerd als gelijke voor Gilgamesj, die zijn eigen volk terroriseerde. Gilgamesj en Enkidu vochten met elkaar, wat een gelijkstand opleverde waarna ze beste vrienden werden. Gilgamesj stuurt daarna een tempel prostituee op hem af. In veel culturen komt dit terug, om de vruchtbaarheidsgodin te eren. Enkidu wordt menselijk nadat hij met deze priesteres heeft geslapen. Bij de dood van Enkidu vervloekt hij de priesteres die hem sterfelijk heeft gemaakt. Maar de goden herinneren hem eraan dat de menselijkheid hem veel vreugde heeft opgeleverd, waarop Enkidu de priesteres zegent ipv vervloekt.
 * Terwijl Gilgamesj samen met Enkidu onderweg is, komt hij Ishtar tegen (een zeer machtige godin van de liefde, maar ook de dood en de vruchtbaarheid). Ishtar wordt verliefd op Gilgamesj, maar deze weigert haar. Gekrengt stuurt Ishtar de Hemelstier op hen af. Maar ook deze wordt door Gilgamesj en Enkidu verslagen. Ishtar pleit bij de goden dat de twee te machtig en overmoedig zijn geworden, en de goden geven haar gelijk en beslissen dat Enkidu moet sterven. Dit verlies kan Gilgamesj niet aan, en hij gaat op zoek naar de onsterfelijkheid. Onderweg komt hij Siduri, de godin van de levensvreugde tegen. Deze raadt hem aan niet op zoek te gaan naar onsterfelijkheid. Uiteindelijk komt hij bij Utnaptishtim terecht. Van hem krijgt hij de onsterfelijkheid, als hij eerst de slaap kan overwinnen. Gilgamesj slaagt er niet in om wakker te blijven, dus kan hij al zeker de onsterfelijkheid niet verkrijgen. Net zoals bij de Grieken is de slaap hier het kleinere broertje van de dood.
 
+## Perseus
+
 #### Perseus. Danaë en de gouden regen
 
 * [Perseus](https://nl.wikipedia.org/wiki/Perseus_(mythologie)) ([en](https://en.wikipedia.org/wiki/Perseus)) is de zoon van Zeus. Zijn moeder was [Danaë](https://nl.wikipedia.org/wiki/Dana%C3%AB_(mythologie)) ([en](https://en.wikipedia.org/wiki/Dana%C3%AB)). Deze was door haar vader opgesloten in een hoge, ontoegankelijke toren want een profetie had voorspeld dat een zoon van Danaë haar vader ging doden. Zeus komt haar kamer binnen in de vorm van een gouden regen.
@@ -94,6 +96,8 @@
 * De Chimaera kan ook niet gedood worden, maar Bellerophon laat lood smelten door de hitte van de Chimaera zelf.
 * Uiteindelijk bestormt Bellerophon de hemel zelf uit overmoed, waarop hij neergebliksemd wordt.
 
+## Herakles
+
 #### Herakles (Lat.: Hercules)
 
 * Vreemde naam: de roem van [Hera](https://nl.wikipedia.org/wiki/Hera) ([en])(https://en.wikipedia.org/wiki/Hera). Hera is een bijzonder jaloerse godin, die haar woede richt op alle buitenechtelijke kinderen van Zeus.
@@ -131,12 +135,15 @@
 * Herakles was een panheleense held.
 
 #### Hylas en Herakles
+
 * [Hylas](https://nl.wikipedia.org/wiki/Hylas) ([en](https://en.wikipedia.org/wiki/Hylas)) was de schildknaap en minnaar van Herakles in de mythe van de Argonauten.
 * Hylas komt in het woud bij een vijver waar net nymfen aan het baden waren. Deze vonden Hylas zo een mooie jongeman dat ze hem meesleurden naar de bodem van de vijver. Herakles gaat op zoek in het woud naar zijn vriend, waarbij "Hylas!" bleef roepen. Hiervan zou helaas afgeleid kunnen zijn.
 * Nymfoleptos: ontvoerd door Nymfen. Dit was een terugkerend thema in de Griekse mythologie. Het zou een weerspiegeling zijn van de angst van de Grieken voor (dominante) vrouwen. Tot op de dag van vandaag leven er nog folklore verhalen op het Griekse platteland over nymfen.
 * Nog een verhaal uit de Argonauten:
 	* Ze komen aan op een eiland met enkel vrouwen op. Na maanden op zee kunnen de mannen hun geluk niet teboven. Enkel Herakles blijft op het schip en na een tijdje brengt hij de mannen met geweld weer terug naar het schip.
 * In deze context was Herakles dus een homoseksueel en een echte vrouwenhater.
+
+## Theseus
 
 #### Theseus. De Atheense Herakles
 
@@ -161,6 +168,8 @@
 * De held moet vaak een beest of monster verslaan, maar dit lijkt alleen te werken wanneer ze zelf ook een beestachtig aspect in zichzelf hebben.
 * Het beestachtige is in veel verhalen ook iets dat buitgemaakt moet worden. Veel helden eigenen zich een deel van het monster toe nadat ze het verslagen hebben.
 * Er is een held die een monster doodt zonder een trofee mee te nemen, hij raakt hem zelfs niet aan: het verhaal van Oedipus die de sfinx doodt puur met zijn verstand.
+
+## Jason en Argonauten
 
 #### Jason en de tocht der Argonauten
 
@@ -212,6 +221,8 @@ De burgers zijn echter zo geschokt door al deze gruwels waardoor Jason nog steed
 	* Een terugkerend thema is de moeder die haar zonen doodt. Voor de vrouw was de zoon in sommige gevallen als een kleine versie van de man, die ze zo hard haatte. Over de zoon had ze echter volledige controle. Er kan dus een soort projectiegedrag plaatsvinden waarbij de vrouw frustraties uitwerken op het kind.
 
 * Deze culturele veranderingen zouden ertoe geleid hebben dat de oude mythes over moedergodinnen hervormd werden naar verhalen over wrede vrouwen. Er leefde dus een angst over mature vrouwen onder de Griekse mannen.
+
+## Odysseus
 
 #### Odysseus. De held die de onsterfelijkheid weigert
 

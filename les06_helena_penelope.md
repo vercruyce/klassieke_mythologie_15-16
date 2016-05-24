@@ -2,6 +2,8 @@
 
 ** 19/05/2016**
 
+## Deel I: Helena: Over de macht van het beeld
+
 #### Eerste slide
 
 * Poster van Mad Men
@@ -10,8 +12,6 @@
 * Ook in onze cultuur zijn er mythes terug te vinden: verhalen die een soort structuur in het leven aanreiken.
   * Deze verhalen kunnen een keurslijf worden.
 * (voorbeeld van persoonlijkheidsquizen; denk: welk Game of Thrones personage ben jij?)
-
-## Deel 1: Helena: Over de macht van het beeld
 
 #### Inleidende slide
 
