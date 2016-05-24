@@ -1,3 +1,10 @@
 \usepackage[a4paper]{geometry}
 \usepackage{a4wide}
 \usepackage[dutch]{babel}
+\usepackage{authblk}
+
+\author{Jonathan Deboosere}
+\author{Robin De Pril}
+\author{Jonas Van Wilder}
+\author{Brecht Vercruyce}
+\affil{Ghent University}
