@@ -9,7 +9,7 @@
 #### Voorafgaand aan Sophocles
 
 - De mens gelooft voor het eerst enkel in zichzelf.
-- De [sfinx](https://nl.wikipedia.org/wiki/Sfinx_(mythologie)#Griekse_sfinx) doodt alle reizigers die het antwoord niet weten op zijn raadsel:
+- De [sfinx](https://nl.wikipedia.org/wiki/Sfinx_%28mythologie%29#Griekse_sfinx) doodt alle reizigers die het antwoord niet weten op zijn raadsel:
   - Welk beest loopt in de ochtend op vier poten, 's middags op twee poten en 's avonds op drie poten?
 - De sfinx bestaat uit verschillende dierlijke delen.
 - Oedipus weet het antwoord: de mens. Hierop werpt de sfinx zich in het ravijn. Oedipus is dus een van de weinige helden die zijn monster doodde zonder hem fysiek aan te raken. Hij nam ook geen enkele talisman mee, hij wou niets overhouden van het monsterlijke.
@@ -18,7 +18,7 @@
 
 #### Als 5e-eeuwse tragedie: [Oedipus Tyrannus](https://en.wikipedia.org/wiki/Oedipus_the_King) (ca. 429) van Sophocles
 
-- [Sophocles](https://nl.wikipedia.org/wiki/Sophocles_(tragicus)) was een van de drie grote Attische tragediedichters.
+- [Sophocles](https://nl.wikipedia.org/wiki/Sophocles_%28tragicus%29) was een van de drie grote Attische tragediedichters.
 - Via de psychoanalyse is Oedipus een bekend persoon geworden in het modernisme.
 - Het zien staat centraal in het verhaal. Oedipus dacht altijd te kunnen vertrouwen op zijn eigen inzicht en intelligentie. Wanneer hij echter zijn eigen fouten merkt, verblindt hij zichzelf.
 - Sophocles verbindt het zien en de blindheid. Hij vertelt het verhaal van [Tiresias](https://nl.wikipedia.org/wiki/Tiresias). Tiresias is een blinde ziener. Hij kan fysiek niet zien, maar heeft dan weer een zicht op andere zaken.
@@ -33,8 +33,8 @@
 - Sophocles trekt het concept van blindheid na het zien van iets goddelijks door in zijn werken.
 - De mogelijkheid om een perfect overzicht van de werkelijkheid van de wereld te zien is enkel voor de goden weggelegd. De mens kan nooit de totaliteit van de werkelijkheid aanschouwen.
 - Blindheid komt in de mythologie vaak voor bij kunstzinnige figuren: vele dichters en zangers zijn in de mythologie blind. Homeros zou ook blind geweest zijn. Ook profeten zijn vaak blind.
-- Blindheid is ook vaak een straf voor het overschrijdend van een grens naar het goddelijke die een mens niet mag overschrijden.
-- [Philippus](https://nl.wikipedia.org/wiki/Philippus_II_van_Macedoni%C3%AB), vader van Alaxander de Grote zou ook blind geworden zijn nadat hij Zeus en zijn vrouw betrapt had.
+- Blindheid is ook vaak een straf voor het overschrijden van een grens naar het goddelijke die een mens niet mag overschrijden.
+- [Philippus](https://nl.wikipedia.org/wiki/Philippus_II_van_Macedoni%C3%AB), vader van Alexander de Grote zou ook blind geworden zijn nadat hij Zeus en zijn vrouw betrapt had.
 - De tragedie draait vaak rond de beperking van menselijke kennis. Maar net die beperktheid maken tragedies over mensen het verhaal ontroerender dan eender welke tragedie over goden.
 
 #### Historische achtergrond: menselijke en goddelijke kennis in de 5e eeuw.
@@ -57,7 +57,7 @@
 
 - Het was een puur verstandelijke overwinning. Hij overwon het monster met zijn intellect.
 - Het raadsel doet denken aan een monster dat eerst op vier poten, dan op twee poten en dan weer op drie poten blijkt te lopen. Oedipus herleidt dit monsterlijke beeld echter weer naar het menselijke. Dit kan een reflectie zijn van het vernieuwde mensbeeld.
-- Men kan zich afvragen of Oedipus er eigenlijk wel in geslaagd is om het monster te verslagen. Uiteindelijk wordt Oedipus zelf herleidt tot iets monsterlijks. Hij ging van een zelfzekere, sterke man naar een enigma voor zichzelf, dat zijn eigen lot niet meer in handen heeft. Uiteindelijk eindigt hij zelf als een hulpeloze "driebeen", blind en verslagen.
+- Men kan zich afvragen of Oedipus er eigenlijk wel in geslaagd is om het monster te verslaan. Uiteindelijk wordt Oedipus zelf herleid tot iets monsterlijks. Hij ging van een zelfzekere, sterke man naar een enigma voor zichzelf, dat zijn eigen lot niet meer in handen heeft. Uiteindelijk eindigt hij zelf als een hulpeloze "driebeen", blind en verslagen.
 - Oedipus: etymologisch kunnen er twee zaken uit afgeleid worden:
   - "zwel voet": zijn voeten waren doorboord als baby door zijn vader
   - "weet voet": het beeld van de alwetende en oplosser van problemen.
@@ -66,9 +66,9 @@
 #### Oedipus als prototype van de Westerse denker
 
 - Oedipus wordt een prototype van westerse denkers. De vadermoord is een beeld voor het breken met de traditie. Hij gaat alleen voort op zijn eigen verstand.
-- Tragedie van het westerse denken: na de vadermoord, het breken met de traditie, blijf de denker ongeworteld en eenzaam achter.
+- Tragedie van het westerse denken: na de vadermoord, het breken met de traditie, blijft de denker ongeworteld en eenzaam achter.
 - De deprojectie is een belangrijke stap in de menselijke geschiedenis. De mens begint in te zien dat hij de schepper is van de goden en niet omgekeerd.
-- [René Descartes](https://nl.wikipedia.org/wiki/Ren%C3%A9_Descartes): "Je pense donce je suis"
+- [René Descartes](https://nl.wikipedia.org/wiki/Ren%C3%A9_Descartes): "Je pense donc je suis"
   - Niets behalve het eigen verstand is een betrouwbare bron. Hierbij kan Descartes gezien worden als een moderne Oedipus.
 - [Friedrich Nietzsche](https://nl.wikipedia.org/wiki/Friedrich_Nietzsche): verklaarde god dood: pleegt op deze manier dus de ultieme vadermoord. Hij breekt volledig met alle voorgaande westerse en katholieke traditie. Geen bijbel meer om op te steunen, zelfs geen koning meer die het recht heeft om te heersen. Een moord op de hele westerse wereld. De mens blijft over als een heel eenzaam wezen, die alles op zichzelf moet doen.
 
