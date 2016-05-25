@@ -4,7 +4,7 @@
 
 #### Eerste slide
 
-* Scene uit het verhaal van Odysseus (Odysseus en de sirenen)
+* Scene uit het verhaal van [Odysseus](https://nl.wikipedia.org/wiki/Odysseus) (Odysseus en de sirenen)
 
 	![The Siren, Edward Armitage, 1888](https://upload.wikimedia.org/wikipedia/commons/d/d7/Armitage_Siren.JPG 'The Siren, Edward Armitage, 1888')
 
@@ -26,7 +26,7 @@
 #### Hoeksteen in ons cultureel referentiekader (slide 1)
 
 * linksboven: mount olympus: theaterstuk van Jan Fabre dat 24 uur duurt en volledig draait om Griekse tragedies.
-* rechts: [Pan](https://nl.wikipedia.org/wiki/Pan_(mythologie)) (Lat.: Faunus) en [Syrinx](https://nl.wikipedia.org/wiki/Syrinx_(nimf)); schilderij van Pieter Paul Rubens
+* rechts: [Pan](https://nl.wikipedia.org/wiki/Pan_%28mythologie%29) (Lat.: Faunus) en [Syrinx](https://nl.wikipedia.org/wiki/Syrinx_%28nimf%29); schilderij van Pieter Paul Rubens
 
  ![Pan en Syrinx, Peter Paul Rubens](https://upload.wikimedia.org/wikipedia/commons/d/d6/Pan_syrinx_Rubens.jpg 'Pan en Syrinx, Peter Paul Rubens')
 
@@ -109,7 +109,7 @@
 		* Vaak ook ruimer gezien: spirituele vruchtbaarheid + leven en dood
 	* Lokale / patriottistische mythen
 		* vaak gebruikt in nationalistisch gedachtegoed: geven een zekere legitimiteit aan een volk.
-		* Bijvoorbeeld: [De Aeneis](https://nl.wikipedia.org/wiki/Aeneis) van Vergilius. Werd door Augustus gesponserd als propagandamiddel.
+		* Bijvoorbeeld: [De Aeneis](https://nl.wikipedia.org/wiki/Aeneis) van [Vergilius](https://nl.wikipedia.org/wiki/Vergilius). Werd door Augustus gesponserd als propagandamiddel.
 	* Heldenmythes (vaak gelinkt aan Lokale / patriottistische mythen)
 		* Veel voorkomende centrale vraag: wat maakt een mens een goed mens?
 		* Helden als rolmodellen
@@ -131,7 +131,7 @@
 
 #### Chronologie
 
-* Minoïsche beschaving (Afrikaanse achtergrond)
+* [Minoïsche beschaving](https://nl.wikipedia.org/wiki/Mino%C3%AFsche_beschaving) (Afrikaanse achtergrond)
 * Dark ages: komst van het alfabet: mythes worden voor het eerst gefixeerd (in schrift vastgelegd). Eenmaal een mythe wordt opgeschreven, houdt hij op een "mythe te zijn", het verhaal evolueert niet verder.
 * [Ionische verlichting](https://en.wikipedia.org/wiki/Ionian_Enlightenment): De oude Grieken zelf beginnen aan godenkritiek te doen. De eerste wetenschappelijke methodes worden toegepast door de natuurfilosofen. Het pre-wetenschappelijk denken.
 
@@ -142,13 +142,13 @@
 * Rol van de zanger
 	* Vaak komt er in de mythes zelf een zanger voor
 	* Ook in de Ilias komen vaak zangers aan het woord.
-* Ilias:
-	* De dood van Patroklos, Hektor en Achilles zijn één (symboliek in de wapenuitrusting)
+* [Ilias](https://nl.wikipedia.org/wiki/Ilias):
+	* De dood van [Patroklos](https://nl.wikipedia.org/wiki/Patroclus), [Hektor](https://en.wikipedia.org/wiki/Hector) en [Achilles](https://nl.wikipedia.org/wiki/Achilles) zijn één (symboliek in de wapenuitrusting)
 	* Achilles vertelt Priamos een verhaal wanneer deze komt smeken om het lijk van Hektor
 	* In de Ilias wordt nooit over de val van Troye verteld. Een minder epos had dit nog expliciet moeten vertellen.
 
 #### Nu moeten ook wij...: het voorbeeld van Niobe
 
-* Niobe:
+* [Niobe](https://en.wikipedia.org/wiki/Niobe):
 	* 7 zonen en 7 dochters
-	* voelde haar gelukkiger dan Leto
+	* voelde haar gelukkiger dan [Leto](https://en.wikipedia.org/wiki/Leto)
