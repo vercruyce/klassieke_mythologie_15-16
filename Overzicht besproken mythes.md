@@ -8,6 +8,7 @@
 * Oedipus
 * Narcissus
 * Ilias
+* Het overspel van Ares en Aphrodite
 
 ## Les 2: Theogonie
 
@@ -16,7 +17,7 @@
 * Zeus en Semele
 * Anchises en Aphrodite: geboorte Aeneas
 * De geboorte van Athena
-* ... (afwezig)
+* Zeus en Europa
 
 ## Les 3: Prometheus
 
@@ -32,18 +33,24 @@
 * Adonis en Aphrodite
 * Demeter en Baubo
 * Isis en Osiris
+* Attis en Kybele
+* Aeneis
+* Balder
+* De god [Zagreus](https://en.wikipedia.org/wiki/Zagreus)
 
 ## Les 5: De held
 
 * Heracles + zijn twaalf werken
 * De vijf mensengeslachten (van Hesiodos)
-* De god [Zagreus](https://en.wikipedia.org/wiki/Zagreus)
-* Perseus
+* Gilgamesj en Enkidu
+* Perseus: Danaë en de gouden regen, doden van de Gorgo, ...
+* Bellerophon
 * Hylas
 * Koning Minos en de Minotaurus
 * Theseus
 * Jason, de Agronauten en het gulden vlies
 * Scylla en Charybdis
+* Odysseus
 
 ## Les 6: Helena en Persephone
 
