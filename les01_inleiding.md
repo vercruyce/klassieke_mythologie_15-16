@@ -121,7 +121,7 @@
 	* Paradigma/exemplum
 	* Reflectie, stellen van vragen, exploratie 'condition humaine'
 	* Ontspanning, vertelling
-	* Aangehaalde mythe: [Narcissus](https://nl.wikipedia.org/wiki/Narcissus_(mythologie))
+	* Aangehaalde mythe: [Narcissus](https://nl.wikipedia.org/wiki/Narcissus_%28mythologie%29)
 
 #### De belangrijke interactie van mythologie met andere velden...
 
