@@ -95,7 +95,7 @@ Thema van de les: invloed van de mythes op de rites.
 * Gaat op het eerste zicht over pure vruchtbaarheid in de landbouw. Maar feitelijk gaat het ook over spirituele vruchtbaarheid. Het aanvaarden van verlies is een belangrijk aspect. Demeter moet aanvaarden dat Persephone gehuwd is aan Hades. In het oude Griekenland was de breuk tussen een moeder en haar dochter veel ruwer bij een huwelijk. Meisjes werden jong uitgehuwd en volledig overgedragen aan hun man. De moeders moesten letterlijk hun dochters uit handen geven en hopen dat de man goed voor hen gingen zorgen.
 * Zeus heeft een heel bedenkelijke rol in het verhaal. Zeus beslist dat Hades haar Persephone mag hebben. Ook dit weerspiegelt een maatschappelijke realiteit van bij de Grieken. Dit was een heel patriarchale cultuur.
 * Een van de weinige mythes die kritisch zijn over de patriarchale cultuur van de Grieken. In de meeste mythes zijn vrouwen rivalen van elkaar die continu in ruzie zijn. In deze mythe is echte solidariteit terug te vinden tussen vrouwen.
-* Rituele context van de mythe: voor ons voelt de mythe compleet anders aan dan voor de oude Grieken. Zij kenden hun connectie met de rites die erond plaatsvonden. Dit creëerde een sterke band binnen hun eigen maatschappij. Het individueel verhaal werd gekoppeld aan een collectief verhaal. De dood is iets dat iedereen overkomt. Geeft een soort troost: een individu kan sterven, maar het grotere geheel blijft bestaan. De dood is niet het einde van alles. De cyclus van leven en dood blijft doorgaan.
+* Rituele context van de mythe: voor ons voelt de mythe compleet anders aan dan voor de oude Grieken. Zij kenden hun connectie met de rites die errond plaatsvonden. Dit creëerde een sterke band binnen hun eigen maatschappij. Het individueel verhaal werd gekoppeld aan een collectief verhaal. De dood is iets dat iedereen overkomt. Geeft een soort troost: een individu kan sterven, maar het grotere geheel blijft bestaan. De dood is niet het einde van alles. De cyclus van leven en dood blijft doorgaan.
 
 ### Adonis en Aphrodite
 
@@ -149,14 +149,14 @@ Thema van de les: invloed van de mythes op de rites.
 * Dit is dus alweer een voorbeeld van de dying and rising gods. Een oervrees van de mens is dat de natuur na de winter niet meer zal herijzen. Alle mythes worden verteld in de hoop om zo controle over de natuur te krijgen en te verzekeren dat hij weer heropleeft na de winter.
 * Frazer zegt dat het idee van dying and rising god het kernidee is van
 * Sympatische magie: je voert rituelen uit waarbij je iets imiteert dat je hoopt te verwezelijken. Denk aan voodoo popjes, om iemand pijn toe te brengen.
-* De priester is een verpersoonlijking van de natuur. Hij staat voor de kracht van de natuur. Wanneer hij oud wordt, beeldt hij de natuur in de winter uit. Er komt dan echter een nieuwere, sterker priester, die de oude verslaat. Zo ook in de natuur, die nadat hij zijn kracht verliest opgevolgd wordt door een sterkere lente.
+* De priester is een verpersoonlijking van de natuur. Hij staat voor de kracht van de natuur. Wanneer hij oud wordt, beeldt hij de natuur in de winter uit. Er komt dan echter een nieuwere, sterkere priester, die de oude verslaat. Zo ook in de natuur, die nadat hij zijn kracht verliest opgevolgd wordt door een sterkere lente.
 * Wat heeft deze tak er nu mee te maken? Dit kan volgens Frazer niet anders zijn dan de maretak. Deze plant is speciaal want hij heeft geen wortels. Hij groeit altijd om een andere boom.
 * Ook de christelijke natuur zijn deze rituelen overgenomen. De kerstboom is een "evergreen". We plaatsten hem in de winter om zeker te zijn dat de natuur zich weer kan vernieuwen en weer groen worden.
 * De maretak heeft een speciale eigenschap: hij raakt niet aan de grond en hij blijft ook altijd groen. Alles dat uit de grond groeit, is schatplichtig aan de dood. De maretak staat hier echter boven. In de winter kan hij blijven groeien op bomen.
 * In de Noorse mythologie speelt de maretak een belangrijke rol in het verhaal van Balder. Dit is ook een dying and rising god. Hij is een van de meest geliefde goden. Hij heeft een heel beschermende moeder. Ze laat als aardgodig alle zaken op aarde zweren dat ze Balder nooit zouden kwetsen. Dit houdt dus in dat Balder voor niets uit de natuur kwetsbaar is. De andere goden houden er dus een spelletje in om alles uit te proberen om Balder te schaden. Geworpen stenen schaden hem bijvoorbeeld niet. Balder heeft echter ook een "Achilles hiel". Zijn moeder, Frigg, heeft echter aan de jonge, buigzame Maretak vergeten vragen om de eed af te leggen. Loki, de trickster uit dit verhaal, maakt hier gebruik van die ene zwakke plek. Hij overtuigt Hodr, de blinde broer, een pijl af te schieten gevormd uit een maretak. In heel de Noorse mythologie wordt echter verwezen naar de terugkomst van Balder bij Magnarok.
 
 * Comparatieve mythologie: vergelijkt verschillende mythologieën over heel de wereld om zo analogieën te vinden en hieruit conclusies te trekken. Dying and rising gods zijn hierbij een zeer belangrijk terugkerend thema.
-* Ook christus is een Dying and Rising god, hier kon Frazer echter niet zo diep op ingaan in zijn originele druk aangezien in die tijd het christendom nog zeer sterk stond. Hij kon dus niet zomar zeggen dat christus gewoon een van de zovele goden is.
+* Ook christus is een Dying and Rising god, hier kon Frazer echter niet zo diep op ingaan in zijn originele druk aangezien in die tijd het christendom nog zeer sterk stond. Hij kon dus niet zomaar zeggen dat christus gewoon een van de zovele goden is.
 
 * Een van de rituelen die Frazer bespreekt zijn de vele licht en vuur rituelen die in de winter plaats vinden. Vaak gebeuren deze rituele op midwinter (en zomer). Deze rituelen gaan bijna allemaal over het thema dat men door de dood moet rijzen om weer tot leven terug te keren.
 * Guy Fawkes: probeerde het house of parliaments op te blazen. Volgens Frazer is het idee hierachter dat Guy Fawkes een afstammeling van de dying and rising gods is. Het oude wordt verbrand zodat het nieuwe kan herrijzen.
@@ -174,11 +174,11 @@ Thema van de les: invloed van de mythes op de rites.
 * Volgens de Orfische mysteriën wordt hij zelfs drie keer geboren. Zagreus zou oorspronkelijk door de titanen uiteen gescheurd en ze eten de delen op. Athene kan zijn hart echter redden. Uit dit hart zou later Dionysos dan geboren worden bij Semele.
 * Vervolg mythe: Zeus werpt bliksems naar de titanen en enkel hun as blijft over. Uit deze as worden later de mensen geboetseerd. De mens bevat dus zowel een deel van de oude titanen, maar ook een deel goddelijkheid, aangezien deze titanen nog een deel goddelijkheid bevatten van Zagreus. Het idee is dus dat de mensen iets goddelijks bevatten, maar een soort trigger nodig hebben om dit naar boven te halen. Het christendom is op deze mythologische ideeën ontstaan. Christus is de persoon die voor de mensen gezorgd heeft om het goddelijke deel in elke mens te bereiken.
 * De cultus van de tragedie was gewijd aan Dionysos. In een van de tragedien, de bachae van ..., Hij komt daar zijn neef tegen. Deze neef wilt echter niet geloven dat Dionysos een god is. Hierop trek Dionysos de stad in om mensen op te trommelen, en vooral vrouwen. Deze vrouwen trokken verwilderd de natuur in. ...
-	* ok, totaal in de war hier in de les: gaat hierover: https://en.wikipedia.org/wiki/The_Bacchae
+	* ok, totaal in de war hier in de les: gaat hierover: [The Bacchae](https://en.wikipedia.org/wiki/The_Bacchae)
 
 #### Frazers invloed: de ‘Myth & Ritual School’
 
-* Walter Burkert breidt ook de ideen verder uit. Hij gaat ervan uit dat de kern achter mythes voortvloeien uit het feit dat wij mensen vleeseters zijn. De mensheid probeert te verklaren waarom hij moet jagen en doden om zelf te kunnen blijven leven. Hij nuanceert de stelling dat mythes uit rites voortvloeien. Hij ontkent niet dat rites er eerst zullen geweest zijn, maar gaat niet uit van een structuele ontwikkeling van mythologien uit bepaalde rites.
+* Walter Burkert breidt ook de ideeën verder uit. Hij gaat ervan uit dat de kern achter mythes voortvloeit uit het feit dat wij mensen vleeseters zijn. De mensheid probeert te verklaren waarom hij moet jagen en doden om zelf te kunnen blijven leven. Hij nuanceert de stelling dat mythes uit rites voortvloeien. Hij ontkent niet dat rites er eerst zullen geweest zijn, maar gaat niet uit van een structuele ontwikkeling van mythologien uit bepaalde rites.
 * Zelfs dieren hebben rites in hun leven. Paringsrituelen en zelfs rituelen bij primaten kunnen als rites gezien worden.
 
 #### D. Frazers invloed: het mythische thema van de (on)vruchtbaarheid in de moderniteit: vier verwante werken
@@ -201,19 +201,19 @@ Thema van de les: invloed van de mythes op de rites.
 #### The Hollow Men, T.S. ELIOT (1925)
 
 * Dit gedicht sluit qua thematiek volledig aan bij The Waste Land.
-* Mistah Kurtz: is het hoofdpersonage in het Heart of Darkness. Hij is een geniaal man, hij draagt de gehele Europese gedachte met zich mee. Hij is als het beeld van de verlichting. Hij wilt deze ideen overbrengen naar de kolonies. Daar verdwijnt hij echter in de jungle.
+* Mistah Kurtz: is het hoofdpersonage in het Heart of Darkness. Hij is een geniaal man, hij draagt de gehele Europese gedachte met zich mee. Hij is als het beeld van de verlichting. Hij wilt deze ideeën overbrengen naar de kolonies. Daar verdwijnt hij echter in de jungle.
 	* Waarvoor staat Mistah Kurtz in het gedicht? Hij staat voor het ineenstorten van de Europese cultuur.
 * A penny for the old guy: knipoog naar Frazer. Die oude Europese cultuur is dood, kunnen we hopen dat dit een verhaal wordt van een dying and rising god? Zal de cultuur weer uit de dood opstaan?
 * Wie zijn de Hollow men? Verschillende lezingen
 	* De moderne mens, ontdaan van alle idealen.
-	* Overlevers van de WO I. Soldaten werden herleidt tot kannonnenvlees. De oorlog was volledig mechanisch waar niets mythisch meer van over was. Verder was er ook geen idee achter de oorlog. Niemand wist nog waarover gevochten werd.
+	* Overlevers van de WO I. Soldaten werden herleid tot kanonnenvlees. De oorlog was volledig mechanisch waar niets mythisch meer van over was. Verder was er ook geen idee achter de oorlog. Niemand wist nog waarover gevochten werd.
 	* Hollow man zou kunnen verwijzen naar de poppen van Guy Fawkes die verbrand worden.
 	* Grote vraag: is er een heropleving mogelijk na het enorme offer dat WO I was? Kan de cultuur weer herijzen?
 * Direct eyes:
 	* verwijzing naar de dodencultuur bij de oude Grieken. De doden moesten de Styx kunnen oversteken. Hiervoor moest de overzet, Chaeron, betaald worden. Bij de Grieken was het zeer belangrijk om de doden correct te begraven en munten mee te geven voor de overzet.
 	* Wanneer je stierf maar geen munten meekreeg kwan de ziel terecht in de Limbo. Het land voor de Styx waar alle zielen vast zitten zonder munt, maar die ook niet slecht waren en de Tartarus verdienden. Deze zielen kunnen de verlossing van de dood niet ervaren. Dit is één grote metafoor voor de Westerse cultuur. We zitten ook in een soort Limbo, de vitaliteit is er volledig uit, maar we kunnen ook niet sterven.
 * Here we go round the mulberry bush:
-	* De moerbei is een vrucht. Deze vrucht laat heel rode vlekken na. Is een verwijzing naar de mythe van Pyramus en Thisbe: https://nl.wikipedia.org/wiki/Pyramus_en_Thisbe
+	* De moerbei is een vrucht. Deze vrucht laat heel rode vlekken na. Is een verwijzing naar de mythe van [Pyramus en Thisbe](https://nl.wikipedia.org/wiki/Pyramus_en_Thisbe)
 	* in het gedicht is dit vervangen door de prickly pear (een cactus). Dit is alweer een verwijzing naar de woestijn, het dorre land
 
 #### Francis Ford Coppola’s Apocalypse Now (1979)

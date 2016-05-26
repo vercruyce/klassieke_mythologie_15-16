@@ -24,7 +24,7 @@
 - Via de psychoanalyse is Oedipus een bekend persoon geworden in het modernisme.
 - Het zien staat centraal in het verhaal. Oedipus dacht altijd te kunnen vertrouwen op zijn eigen inzicht en intelligentie. Wanneer hij echter zijn eigen fouten merkt, verblindt hij zichzelf.
 - Sophocles verbindt het zien en de blindheid. Hij vertelt het verhaal van [Tiresias](https://nl.wikipedia.org/wiki/Tiresias). Tiresias is een blinde ziener. Hij kan fysiek niet zien, maar heeft dan weer een zicht op andere zaken.
-- Oedipus raadplaagt Tiresias in de zoektocht naar de moordenaar van de koning (zijn echte vader). Tiresias wilt echter niet het verhaal van Oedipus niet uit de doeken doen. Oedipus wordt hierop kwaad en beschuldigd Tiresias van verraad en samenzwering. Tiresias verklapt hierop in raadsels dat Oedipus zelf diegene is die hij zoekt.
+- Oedipus raadplaagt Tiresias in de zoektocht naar de moordenaar van de koning (zijn echte vader). Tiresias wilt echter niet het verhaal van Oedipus niet uit de doeken doen. Oedipus wordt hierop kwaad en beschuldigt Tiresias van verraad en samenzwering. Tiresias verklapt hierop in raadsels dat Oedipus zelf diegene is die hij zoekt.
 - Tegenstelling van Oedipus die fysiek kan kijken, maar niet kan zien en Tiresias die het zicht heeft verloren, maar wel kan zien.
 - Oedipus wordt door de inwoners bijna in de rol van een god geplaatst. Hij neemt zelf die rol gretig over, en denkt dat hij alles zelf kan oplossen.
 

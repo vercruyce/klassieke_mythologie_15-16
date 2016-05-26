@@ -19,7 +19,7 @@
 
 * De allereerste god was [Chaos](https://nl.wikipedia.org/wiki/Chaos_(Griekse_mythologie)) (In het Grieks ± de leegte). Is man noch vrouw, hemel noch aarde.
 * [Homerus](https://nl.wikipedia.org/wiki/Homerus) en [Hesiodos](https://nl.wikipedia.org/wiki/Hesiodos) zorgen voor de "eerste" standaard theogonie bij de oude Grieken. Hun beeld van de stamboom, het uitzicht, etc. van de goden werd algemeen aanvaard.
-* [Tartaros](https://nl.wikipedia.org/wiki/Tartaros) is een van de goden die ontstond uit Chaos. Hij was de gode van de duisternis. Later werd dit de hel bij de Grieken.
+* [Tartaros](https://nl.wikipedia.org/wiki/Tartaros) is een van de goden die ontstond uit Chaos. Hij was de god van de duisternis. Later werd dit de hel bij de Grieken.
 * [Eros](https://nl.wikipedia.org/wiki/Eros_(god)) was ook een van de kinderen van Chaos. Hij stond voor de liefde (maar eerder zoals in het vurige verlangen).
 	* Deze god komt ook terug in de psychoanalyse van Freud, één van de kaders die gebruikt wordt om mythes te verklaren.
 * Hemel (Uranos) en aarde (Gaia) is een liefdeskoppel dat uit elkaar moet gehouden worden zodat er plaats kan zijn voor leven op aarde. Dit is een universeel thema dat in veel mythologiën terugkomt.

@@ -7,7 +7,7 @@
 * In de Griekse mythologie zijn helden bijna altijd dubbelzinnig.
 	* enerzijds is hij een redder,
 	* anderzijds ligt hij heel vaak in conflict: met zichzelf, met de goden, met de gemeenschap en heel vaak ook met de vrouw.
-* Het beeld op de eerste slide is [Heracles](https://nl.wikipedia.org/wiki/Herakles_(mythologie)) ([en](https://en.wikipedia.org/wiki/Heracles)). Bekend van zijn twaalf werken. Eén van die taken is het halen van de appels van de [Hesperiden](https://nl.wikipedia.org/wiki/Hesperiden) ([en](https://en.wikipedia.org/wiki/Hesperides)). In hun tuin zouden gouden appels groeien. Heracles moet deze appels aan het einde van de wereld gaan halen. Die tuin werd bewaakt door een onverslaagbare draak. Daarna moest hij ook nog passeren aan de titaan [Atlas](https://nl.wikipedia.org/wiki/Atlas_(mythologie)) ([en](https://en.wikipedia.org/wiki/Atlas_(mythology))). Deze heeft de taak gekregen om de hemel boven de aarde te houden. Atlas is ook de vader van de Hesperiden. Heracles vraagt dan aan Atlas of hij de appels wilt gaan halen bij zijn dochters. Die gaat akkoord als Heracles even de hemel wilt overnemen. Hierna wilt Atlas de hemel niet meer overnemen van Heracles. Heracles redt zich hieruit door eerst aan Atlas te vragen of hij even een touw rond zijn schouders mag binden om hem te helpen bij zijn last. Atlas neemt dan nog eventjes de hemel over, waarop Heracles vertrekt.
+* Het beeld op de eerste slide is [Heracles](https://nl.wikipedia.org/wiki/Herakles_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Heracles)). Bekend van zijn twaalf werken. Eén van die taken is het halen van de appels van de [Hesperiden](https://nl.wikipedia.org/wiki/Hesperiden) ([en](https://en.wikipedia.org/wiki/Hesperides)). In hun tuin zouden gouden appels groeien. Heracles moet deze appels aan het einde van de wereld gaan halen. Die tuin werd bewaakt door een onverslaanbare draak. Daarna moest hij ook nog passeren aan de titaan [Atlas](https://nl.wikipedia.org/wiki/Atlas_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Atlas_%28mythology%29)). Deze heeft de taak gekregen om de hemel boven de aarde te houden. Atlas is ook de vader van de Hesperiden. Heracles vraagt dan aan Atlas of hij de appels wilt gaan halen bij zijn dochters. Die gaat akkoord als Heracles even de hemel wilt overnemen. Hierna wilt Atlas de hemel niet meer overnemen van Heracles. Heracles redt zich hieruit door eerst aan Atlas te vragen of hij even een touw rond zijn schouders mag binden om hem te helpen bij zijn last. Atlas neemt dan nog eventjes de hemel over, waarop Heracles vertrekt.
 * De derde persoon op de eerste slide is Athena. Zij helpt Heracles bij het dragen van de Hemel. Heracles denkt dat hij de hemel zelf draagt, terwijl de godin achter zijn rug hem eigenlijk helpt.
 * Heel vaak krijgt de held een voorbeeldrol. Hij is een uitvergroting van de dagdagelijkse man, en toont hoe hij door het leven zou moeten gaan.
 * Heracles: drie attributen:
@@ -52,24 +52,24 @@
 
 #### Perseus. Danaë en de gouden regen
 
-* [Perseus](https://nl.wikipedia.org/wiki/Perseus_(mythologie)) ([en](https://en.wikipedia.org/wiki/Perseus)) is de zoon van Zeus. Zijn moeder was [Danaë](https://nl.wikipedia.org/wiki/Dana%C3%AB_(mythologie)) ([en](https://en.wikipedia.org/wiki/Dana%C3%AB)). Deze was door haar vader opgesloten in een hoge, ontoegankelijke toren want een profetie had voorspeld dat een zoon van Danaë haar vader ging doden. Zeus komt haar kamer binnen in de vorm van een gouden regen.
+* [Perseus](https://nl.wikipedia.org/wiki/Perseus_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Perseus)) is de zoon van Zeus. Zijn moeder was [Danaë](https://nl.wikipedia.org/wiki/Dana%C3%AB_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Dana%C3%AB)). Deze was door haar vader opgesloten in een hoge, ontoegankelijke toren want een profetie had voorspeld dat een zoon van Danaë haar vader ging doden. Zeus komt haar kamer binnen in de vorm van een gouden regen.
 * De gouden regen zou een beeldspraak zijn voor het de gouden munten waarmee de bewaakster van Danaë werd omgekocht door haar minnaar.
-* De vader steekt Danaë en haar zoontje in een kist, en gooit hen in de zee. Waarom doodt hij hen niet gewoon? De vader zal weten dat er goden in het spel zijn, en durft deze heiligenschennis niet aan.
+* De vader steekt Danaë en haar zoontje in een kist, en gooit hen in de zee. Waarom doodt hij hen niet gewoon? De vader zal weten dat er goden in het spel zijn, en durft deze heiligschennis niet aan.
 
 #### Perseus. Het doden van de Gorgo en de geboorte van Pegasus
 
-* Uiteindelijk komen Danaë en Perseus aan in een ver land terecht bij een andere koning. Die koning begeert al gauw Danaë, maar Perseus wilt dit niet toelaten. De koning zoekt een manier om Perseus uit de weg te ruimen. Hij geeft namelijk de opdracht om het hoofd van de [Gorgo](https://nl.wikipedia.org/wiki/Gorgonen_(mythologie)) ([en](https://en.wikipedia.org/wiki/Gorgon)) te halen, een opdracht die als onmogelijk werd beschouwd.
-* Uit het bloed van Medusa zou het paard [Pegasus](https://nl.wikipedia.org/wiki/Pegasus_(mythologie)) ontstaan zijn. Dit paard is het symbool geworden van het sublieme, en van de dichterskunst. Hier zit dus het idee dat uit het allerlelijkste iets moois kan komen. Dit idee zit ook in de geboorte van Aphorodite (uit de geweldadige castratie van Kronos).
+* Uiteindelijk komen Danaë en Perseus aan in een ver land terecht bij een andere koning. Die koning begeert al gauw Danaë, maar Perseus wilt dit niet toelaten. De koning zoekt een manier om Perseus uit de weg te ruimen. Hij geeft namelijk de opdracht om het hoofd van de [Gorgo](https://nl.wikipedia.org/wiki/Gorgonen_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Gorgon)) te halen, een opdracht die als onmogelijk werd beschouwd.
+* Uit het bloed van Medusa zou het paard [Pegasus](https://nl.wikipedia.org/wiki/Pegasus_%28mythologie%29) ontstaan zijn. Dit paard is het symbool geworden van het sublieme, en van de dichterskunst. Hier zit dus het idee dat uit het allerlelijkste iets moois kan komen. Dit idee zit ook in de geboorte van Aphorodite (uit de geweldadige castratie van Kronos).
 
 #### Medusa: van verschrikking tot schoonheid
 
-* Wie zijn de Gorgonen: drie zusters, dochters van de god van de winden. Ze zijn samengesteld uit verschillende delen van dieren en mensen. Twee van de drie zijn onsterfelijk, maar de derde, [Medusa](https://nl.wikipedia.org/wiki/Medusa_(mythologie)) ([en](https://en.wikipedia.org/wiki/Medusa)), is sterfelijk. Het is dus haar hoofd die Perseus moet gaan halen. Hiervoor krijgt hij enkele attributen van de goden: de helm van Hades (maakt je onzichtbaar zoals de doden), de zak voor het hoofd, en een glanzend schild. Dit laatste is bedoeld om de blik van het monster te ontwijken, die een mens onmiddelijk versteent.
+* Wie zijn de Gorgonen: drie zusters, dochters van de god van de winden. Ze zijn samengesteld uit verschillende delen van dieren en mensen. Twee van de drie zijn onsterfelijk, maar de derde, [Medusa](https://nl.wikipedia.org/wiki/Medusa_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Medusa)), is sterfelijk. Het is dus haar hoofd die Perseus moet gaan halen. Hiervoor krijgt hij enkele attributen van de goden: de helm van Hades (maakt je onzichtbaar zoals de doden), de zak voor het hoofd, en een glanzend schild. Dit laatste is bedoeld om de blik van het monster te ontwijken, die een mens onmiddelijk versteent.
 * Ook hier zitten een tweede lezing: niet alle waarheiden kan je rechtstreeks verwerven. Soms moet je de vervormde versie bekijken om de waarheid erachter te weten te komen. Dit is ook zo met mythes: de verhalen proberen via een omweg zekere wijsheden over te brengen.
 * Athena wordt vaak afgebeeld met het hoofd van de Gorgo op zich geplakt.
 
 #### Medusa en Athena: ooit één godin?
 
-* In andere verhalen was Medusa eerst een prachtige zeenympf, die ook nog eens leek op Athena. Poseidon wordt verliefd op haar. Wanneer Athena Medusa en Poseidon betrappen in een van haar tempels, straft ze Medusa door haar te veranderen in een monster.
+* In andere verhalen was Medusa eerst een prachtige zeenymf, die ook nog eens leek op Athena. Poseidon wordt verliefd op haar. Wanneer Athena Medusa en Poseidon betrapt in een van haar tempels, straft ze Medusa door haar te veranderen in een monster.
 * Athena heeft zelf ook een Gorgonische blik. Een strenge, doordringende blik. Dus ook haar blik is figuurlijk in staat mensen te verstenen.
 * Thematiek van de fatale blik in de Griekse mythologie: het idee dat kijken, of uitgebreider, iets leren, kan sterfelijk zijn.
 	* Tiresias: de blinde ziener die vaak voortkomt in tragedies. Hij weet dingen uit de toekomst, maar kan niet meer zien. Hij is zijn zicht verloren nadat hij Athena naakt heeft gezien. Athena is echter behoorlijk mild: ze ontneemt hem zijn zicht, maar geeft die zienersgift in de plaats terug.
@@ -90,8 +90,8 @@
 
 ##### Bellerophon
 
-* [Bellerophon](https://nl.wikipedia.org/wiki/Bellerophon_(mythologie)) ([en](https://en.wikipedia.org/wiki/Bellerophon)) heeft veel met Perseus gemeen, maar zijn verhaal heeft geen gelukkig einde.
-* Bellerophon doodt de [Chimaera](https://nl.wikipedia.org/wiki/Chimaera_(mythologie)) ([en](https://en.wikipedia.org/wiki/Chimera_(mythology))), alweer een hybride monster, en temt Pegasus.
+* [Bellerophon](https://nl.wikipedia.org/wiki/Bellerophon_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Bellerophon)) heeft veel met Perseus gemeen, maar zijn verhaal heeft geen gelukkig einde.
+* Bellerophon doodt de [Chimaera](https://nl.wikipedia.org/wiki/Chimaera_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Chimera_%28mythology%29)), alweer een hybride monster, en temt Pegasus.
 * Zijn verhaal had een [Potifar](https://nl.wikipedia.org/wiki/Potifar) thema: Bellerophon wijst een vrouw af, die dan gekrenkt is.
 * De Chimaera kan ook niet gedood worden, maar Bellerophon laat lood smelten door de hitte van de Chimaera zelf.
 * Uiteindelijk bestormt Bellerophon de hemel zelf uit overmoed, waarop hij neergebliksemd wordt.
@@ -100,7 +100,7 @@
 
 #### Herakles (Lat.: Hercules)
 
-* Vreemde naam: de roem van [Hera](https://nl.wikipedia.org/wiki/Hera) ([en])(https://en.wikipedia.org/wiki/Hera). Hera is een bijzonder jaloerse godin, die haar woede richt op alle buitenechtelijke kinderen van Zeus.
+* Vreemde naam: de roem van [Hera](https://nl.wikipedia.org/wiki/Hera) ([en](https://en.wikipedia.org/wiki/Hera)). Hera is een bijzonder jaloerse godin, die haar woede richt op alle buitenechtelijke kinderen van Zeus.
 
 #### Herakles als kind
 
@@ -111,7 +111,7 @@
 #### De twaalf werken van Herakles
 
 * Herakles werd door Hera waanzinnig gemaakt, waarop hij zijn eerste vrouw en kinderen doodde.
-* Lees meer over twaalf werken van Herakles (ga ze niet uittype hier)
+* Lees meer over twaalf werken van Herakles (ga ze niet uittypen hier)
 
 **12/05/2016**
 
@@ -154,7 +154,7 @@
 #### Pasiphaë, de Kretenzische stier en de Minotaurus
 
 * Theseus is ook de doder van de [Minotaurus](https://nl.wikipedia.org/wiki/Minotaurus) ([en](https://en.wikipedia.org/wiki/Minotaur)).
-	* De koning van Kreta, [Minos](https://nl.wikipedia.org/wiki/Minos) ([en](https://en.wikipedia.org/wiki/Minos)), krijgt van Poseidon een prachtige stier cadeau om aan hem te offeren. Hij weigert echter dit dier te doden. Als straf laat Poseidon Minos' vrouw, [Pasiphaë](https://nl.wikipedia.org/wiki/Pasipha%C3%AB), verliefd worden op de stier. Ze laat [Daedalus](https://nl.wikipedia.org/wiki/Daedalus_(mythologie)) ([en](https://en.wikipedia.org/wiki/Daedalus)) een machine bouwen zodat ze met de stier kan vrijen. Hieruit wordt de Minotaurus geboren. Minos laat dit monster opsluiten in een labyrint. Enzovoort... (lees het verhaal)
+	* De koning van Kreta, [Minos](https://nl.wikipedia.org/wiki/Minos) ([en](https://en.wikipedia.org/wiki/Minos)), krijgt van Poseidon een prachtige stier cadeau om aan hem te offeren. Hij weigert echter dit dier te doden. Als straf laat Poseidon Minos' vrouw, [Pasiphaë](https://nl.wikipedia.org/wiki/Pasipha%C3%AB), verliefd worden op de stier. Ze laat [Daedalus](https://nl.wikipedia.org/wiki/Daedalus_%28mythologie%28) ([en](https://en.wikipedia.org/wiki/Daedalus)) een machine bouwen zodat ze met de stier kan vrijen. Hieruit wordt de Minotaurus geboren. Minos laat dit monster opsluiten in een labyrint. Enzovoort... (lees het verhaal)
 * In de Minoïsche beschaving kwam het symbool van de stier heel vaak terug. Het is nog niet volledig duidelijk waarvoor dit stond, maar heel waarschijnlijk stond het voor de koninklijke macht. Deze mythe heeft dus een heel sterke archeologische onderbouwing.
 * Waarvoor is het labyrint een metafoor?
 	* Een plaats waar je op zoek gaat naar je zelf. Je moet het dierlijke en monsterlijke in jezelf controleren.
@@ -173,11 +173,11 @@
 
 #### Jason en de tocht der Argonauten
 
-* Ook [Jason](https://nl.wikipedia.org/wiki/Jason_(mythologie)) ([en](https://en.wikipedia.org/wiki/Jason)) heeft problemen met vrouwen. Hij heeft ook af te rekenen met een koning die hem zijn rechten niet gunt. Zijn vader was door zijn oom, [Pelias](https://nl.wikipedia.org/wiki/Pelias_(mythologie)) ([en](https://en.wikipedia.org/wiki/Pelias)), van de troon gestoten. Jason gaat daarom naar zijn oom om zijn rechtmatige plaats op te eisen. Onderweg komt hij een oud vrouwtje tegen die er niet in slaagt om een rivier over te steken. Jason helpt haar oversteken en verliest hierbij een sandaal. Dit vrouwtje blijkt Hera te zijn, die vanaf dan Jason zal bijstaan. Uiteindelijk komt hij bij zijn oom aan. Deze had van een orakel gehoord dat hij zijn einde zou vinden door een man met één sandaal. Daarom geeft de oom Jason de taak om het [gulden vlies](https://nl.wikipedia.org/wiki/Gulden_vlies_(mythologie)) ([en](https://en.wikipedia.org/wiki/Golden_Fleece)) te halen, een taak waarvan gedacht werd dat niemand het zou overleven. Om deze taak te volbrengen verzamelt Jason alle grote Griekse helden, de [Argonauten](https://nl.wikipedia.org/wiki/Argonauten) ([en](https://en.wikipedia.org/wiki/Argonauts)). (lees verhaal van de Argonauten en hun tocht). Uiteindelijk komen ze in [Colchis](https://nl.wikipedia.org/wiki/Colchis) ([en](https://en.wikipedia.org/wiki/Colchis)) aan waar het gulden vlies bewaard wordt door koning [Aietes](https://nl.wikipedia.org/wiki/Aietes) ([en](https://en.wikipedia.org/wiki/Ae%C3%ABtes)). Deze wilt het vlies geven aan Jason, als hij zich waardig toont. Hij moet hiervoor de ossen mennen, die vuurspuwden. Jason kan niet slagen in deze proef, daarom helpt Hera hem. Hera gooit het op een akkoord met Aphrodite, die de dochter van Aietes, [Medea](https://nl.wikipedia.org/wiki/Medea_(mythologie)) ([en](https://en.wikipedia.org/wiki/Medea)), op Jason verliefd laat worden. Medea helpt Jason bij zijn proeven en verraad haar eigen vader hierbij. Nadat de proeven gelukt zijn, neemt Jason Medea met zich mee.
+* Ook [Jason](https://nl.wikipedia.org/wiki/Jason_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Jason)) heeft problemen met vrouwen. Hij heeft ook af te rekenen met een koning die hem zijn rechten niet gunt. Zijn vader was door zijn oom, [Pelias](https://nl.wikipedia.org/wiki/Pelias_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Pelias)), van de troon gestoten. Jason gaat daarom naar zijn oom om zijn rechtmatige plaats op te eisen. Onderweg komt hij een oud vrouwtje tegen die er niet in slaagt om een rivier over te steken. Jason helpt haar oversteken en verliest hierbij een sandaal. Dit vrouwtje blijkt Hera te zijn, die vanaf dan Jason zal bijstaan. Uiteindelijk komt hij bij zijn oom aan. Deze had van een orakel gehoord dat hij zijn einde zou vinden door een man met één sandaal. Daarom geeft de oom Jason de taak om het [gulden vlies](https://nl.wikipedia.org/wiki/Gulden_vlies_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Golden_Fleece)) te halen, een taak waarvan gedacht werd dat niemand het zou overleven. Om deze taak te volbrengen verzamelt Jason alle grote Griekse helden, de [Argonauten](https://nl.wikipedia.org/wiki/Argonauten) ([en](https://en.wikipedia.org/wiki/Argonauts)). (lees verhaal van de Argonauten en hun tocht). Uiteindelijk komen ze in [Colchis](https://nl.wikipedia.org/wiki/Colchis) ([en](https://en.wikipedia.org/wiki/Colchis)) aan waar het gulden vlies bewaard wordt door koning [Aietes](https://nl.wikipedia.org/wiki/Aietes) ([en](https://en.wikipedia.org/wiki/Ae%C3%ABtes)). Deze wilt het vlies geven aan Jason, als hij zich waardig toont. Hij moet hiervoor de ossen mennen, die vuurspuwden. Jason kan niet slagen in deze proef, daarom helpt Hera hem. Hera gooit het op een akkoord met Aphrodite, die de dochter van Aietes, [Medea](https://nl.wikipedia.org/wiki/Medea_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Medea)), op Jason verliefd laat worden. Medea helpt Jason bij zijn proeven en verraad haar eigen vader hierbij. Nadat de proeven gelukt zijn, neemt Jason Medea met zich mee.
 Wanneer ze terug bij zijn oom komen, neemt deze het vlies aan, maar staat de troon niet af. Medea doodt de oom in Jasons plaats. Ze maakt hem wijs dat ze hem kan verjongen door hem in stukken te kappen en te koken.
 De burgers zijn echter zo geschokt door al deze gruwels waardoor Jason nog steeds niet koning kan worden. Hij krijgt echter nog een kans om de kroon te verkrijgen door te trouwen met een prinses. Daarom verstoot Jason Medea. Medea is woedend en dood hun beide kinderen en vlucht dan weg met een span getrokken door vuurspuwende draken.
 * Hoe komt het dat Medea met zo een daad wegkomt? In het origineel verhaal was Medea waarschijnlijk niet het monsterachtig figuur zoals in deze versie. Medea is waarschijnlijk ontstaan uit een oude moedergodin. Deze staat dus voor het geven en nemen van het leven en de levenscyclus. Dit zou bij de Grieken naar deze versie geëvolueerd zijn.
-* Medea doodt hun zonen zodat Jason alle vormen verliest op een vorm van onsterfelijkheid door zijn kinderen. Uiteindelijk komt Jason zeer tragisch ten einde. Hij lag als oude man te slapen op het vrak van de Argo. Er brak een stuk van de mast af die hem verpletterde.
+* Medea doodt hun zonen zodat Jason alle vormen verliest op een vorm van onsterfelijkheid door zijn kinderen. Uiteindelijk komt Jason zeer tragisch ten einde. Hij lag als oude man te slapen op het wrak van de Argo. Er brak een stuk van de mast af dat hem verpletterde.
 
 #### De held tussen monsters en goden.
 
@@ -191,7 +191,7 @@ De burgers zijn echter zo geschokt door al deze gruwels waardoor Jason nog steed
 #### De held in conflict met de polis. De held als centaur
 
 * De held is als een soort tussenwezen. In de eerste plaats heeft de polis hem nodig om uit de chaos orde te scheppen. Achteraf komt de held zelf in conflict met de polis omdat hij zelf het monsterlijke in zich heeft. Hij is vaak meer of mindere dan de gewone mens.
-* De [Centauren](https://nl.wikipedia.org/wiki/Centaur_(mythologie)) ([en](https://en.wikipedia.org/wiki/Centaur)) en de [Amazonen](https://nl.wikipedia.org/wiki/Amazonen) ([en](https://en.wikipedia.org/wiki/Amazons)) staan voor de verstoring van het universum. De mannelijke held moet zegenvieren om de orde te scheppen.
+* De [Centauren](https://nl.wikipedia.org/wiki/Centaur_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Centaur)) en de [Amazonen](https://nl.wikipedia.org/wiki/Amazonen) ([en](https://en.wikipedia.org/wiki/Amazons)) staan voor de verstoring van het universum. De mannelijke held moet zegenvieren om de orde te scheppen.
 
 #### Chiron, de centaur als leermeester van helden
 
@@ -201,10 +201,10 @@ De burgers zijn echter zo geschokt door al deze gruwels waardoor Jason nog steed
 
 * De vrouw was in veel gevallen machtiger dan de mannelijke held. Dit is zeer vreemd voor een cultuur waarbij de vrouw amper macht had.
 * Ook monsters waren vaak vrouwen (Medusa, syrenen, ...).
-* Veranderingen door [Circe](https://nl.wikipedia.org/wiki/Circe_(mythologie)) ([en](https://en.wikipedia.org/wiki/Circe)) (tovenares komt ook voor in Odyssea):
-	* [Scylla](https://nl.wikipedia.org/wiki/Scylla_(nimf)) ([en](https://en.wikipedia.org/wiki/Scylla))
-	* [Picus](https://nl.wikipedia.org/wiki/Picus_(mythologie)) ([en](https://en.wikipedia.org/wiki/Picus))
-* Scylla en [Charybdis](https://nl.wikipedia.org/wiki/Charybdis_(mythologie)) ([en](https://en.wikipedia.org/wiki/Charybdis))
+* Veranderingen door [Circe](https://nl.wikipedia.org/wiki/Circe_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Circe)) (tovenares komt ook voor in Odyssea):
+	* [Scylla](https://nl.wikipedia.org/wiki/Scylla_%28nimf%29) ([en](https://en.wikipedia.org/wiki/Scylla))
+	* [Picus](https://nl.wikipedia.org/wiki/Picus_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Picus))
+* Scylla en [Charybdis](https://nl.wikipedia.org/wiki/Charybdis_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Charybdis))
 * Tussen Scylla en Charybdis kiezen: het minste van twee kwaden kiezen.
 * Positieve verhalen van vrouwen bestaat ook, maar hierin zijn de vrouwen steeds maagden. Het is pas wanneer de maagdelijkheid doorbroken wordt dat de vrouwen als negatief worden afgeschilderd.
 	* Men kan dit verklaren als een zekere symboliek.
@@ -218,7 +218,7 @@ De burgers zijn echter zo geschokt door al deze gruwels waardoor Jason nog steed
 	* Hij herleidt dit terug naar de rol van de vrouw in het gezin in de 5de eeuw voor Christus. De vrouw werd heel sterk onderdrukt (denk aan Demeter en Persephone als kritiek hierop). Dit had een vreemde keerzijde. De vrouw was quasi eigendom van haar vader of man, ze stond voortdurend onder het toezicht van een man. Een van haar taken was echter de kinderen opvoeden, ook de jongens. De jongens stonden tot aan de volwassenheid dus onder het toezicht van hun moeder, afgezonderd van de mannenwereld. Dit zie je ook terug in de mythe van Herakles, waarbij Hera Herakles kon blijven treiteren zonder inmenging van Zeus. Toch hadden de jongens de voorkeur bij de ouders aangezien meisjes uitgehuwelijkt werden wat een volledige breuk was met de familie.
 	* Een Griekse jongen leefde dus volledig afgezonderd van de mannen onder het toezicht van zijn gefrustreerde moeder. Haar aandacht is echter volledig gericht op haar zoon. Want via die zoon kon de moeder haar eigen wensen verwezenlijken, want deze zoon heeft wel veel meer vrijheden in de maatschappij.
 	* In de eerste levensjaren, wanneer de psyche wordt gevormd, worden in de ogen van het kind alle belangrijke beslissingen door de moeder genomen.
-	* Een terugkerend thema is de moeder die haar zonen doodt. Voor de vrouw was de zoon in sommige gevallen als een kleine versie van de man, die ze zo hard haatte. Over de zoon had ze echter volledige controle. Er kan dus een soort projectiegedrag plaatsvinden waarbij de vrouw frustraties uitwerken op het kind.
+	* Een terugkerend thema is de moeder die haar zonen doodt. Voor de vrouw was de zoon in sommige gevallen als een kleine versie van de man, die ze zo hard haatte. Over de zoon had ze echter volledige controle. Er kan dus een soort projectiegedrag plaatsvinden waarbij de vrouw frustraties uitwerkt op het kind.
 
 * Deze culturele veranderingen zouden ertoe geleid hebben dat de oude mythes over moedergodinnen hervormd werden naar verhalen over wrede vrouwen. Er leefde dus een angst over mature vrouwen onder de Griekse mannen.
 
@@ -226,7 +226,7 @@ De burgers zijn echter zo geschokt door al deze gruwels waardoor Jason nog steed
 
 #### Odysseus. De held die de onsterfelijkheid weigert
 
-* [Odysseus](https://nl.wikipedia.org/wiki/Odysseus) ([en](https://en.wikipedia.org/wiki/Odysseus)] is een zeer atypische held. Hij moet het niet hebben van zijn kracht, maar van zijn verstand.
+* [Odysseus](https://nl.wikipedia.org/wiki/Odysseus) ([en](https://en.wikipedia.org/wiki/Odysseus)) is een zeer atypische held. Hij moet het niet hebben van zijn kracht, maar van zijn verstand.
 * Odysseus is wel degelijk geïnteresseerd in roem, maar uiteindelijk weigert hij de onsterfelijkheid.
 * Hij heeft een veel betere relatie met vrouwen, in tegenstelling tot andere helden.
 * Odysseus is ook geen monsterdoder.
@@ -248,9 +248,9 @@ De burgers zijn echter zo geschokt door al deze gruwels waardoor Jason nog steed
 
 #### Kirke. De verleiding van het dierlijke
 
-* Tweede verleiding: eiland van [Circe](https://nl.wikipedia.org/wiki/Circe_(mythologie)) ([en](https://en.wikipedia.org/wiki/Circe)) (dochter van de zon). Ze geeft de mannen een drankje die hen verandert in di1eren. Dit is een metafoor voor de dierlijke verlangens in de mannen. Het is dus een lustoord.
-	* Het is Hermes die Odysseus beschermt door hem een poeder te geven die hem beschermt van de magie.
+* Tweede verleiding: eiland van [Circe](https://nl.wikipedia.org/wiki/Circe_%28mythologie%29) ([en](https://en.wikipedia.org/wiki/Circe)) (dochter van de zon). Ze geeft de mannen een drankje dat hen verandert in dieren. Dit is een metafoor voor de dierlijke verlangens in de mannen. Het is dus een lustoord.
+	* Het is Hermes die Odysseus beschermt door hem een poeder te geven dat hem beschermt van de magie.
 
 #### Calypso: de verleiding van het goddelijke
 
-* Ten slotte leidt Odysseus schipbreuk op het eiland Ogygia zonder zijn manschappen. Hier woont [Calypso](https://nl.wikipedia.org/wiki/Kalypso) ([en](https://en.wikipedia.org/wiki/Calypso_(mythology))) (betekent: zij die verbergt). Zij wilt Odysseus voor haarzelf houden (vandaar verbergen). Odysseus wilt echter gewoon weg. Het zijn de goden die Calypso verplichten Odysseus te laten gaan.
+* Ten slotte lijdt Odysseus schipbreuk op het eiland Ogygia zonder zijn manschappen. Hier woont [Calypso](https://nl.wikipedia.org/wiki/Kalypso) ([en](https://en.wikipedia.org/wiki/Calypso_%28mytholog%29)) (betekent: zij die verbergt). Zij wilt Odysseus voor haarzelf houden (vandaar verbergen). Odysseus wilt echter gewoon weg. Het zijn de goden die Calypso verplichten Odysseus te laten gaan.

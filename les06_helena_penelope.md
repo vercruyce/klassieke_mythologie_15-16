@@ -15,19 +15,19 @@
 
 #### Inleidende slide
 
-* [Helena](https://nl.wikipedia.org/wiki/Helena_(mythologie)) was de ultieme schoonheid (de Marilyn Monroe uit de eerste slide).
+* [Helena](https://nl.wikipedia.org/wiki/Helena_%28mythologie%29) was de ultieme schoonheid (de Marilyn Monroe uit de eerste slide).
 * Als we de afbeeldingen van Helena door de geschiedenis bekijken duiken enorme verschillen op.
   * Helena is iets ongrijpbaars: ze is het ultieme beeld van schoonheid wat zich niet laat vangen in kunstwerken.
   * Weerspiegelt het ideaalbeeld van de maatschappij van het kunstwerk
   * Helena: betekent ± stralend licht; komt etymologisch van het woord voor maangodin. Ze was oorspronkelijk waarschijnlijk ook een godin
   * Wordt ook de Venus onder de mensen genoemd.
   * De fakkel, waarmee ze vaak afgebeeld wordt, is ook een symbool voor het platbranden en de ondergang van Troje.
-* [Paris](https://nl.wikipedia.org/wiki/Paris_(mythologie)), prins van Troje, is de man die haar schaakte. Ze was oorspronkelijk getrouwd met [Menelaus](https://nl.wikipedia.org/wiki/Menela%C3%BCs), koning van Sparta.
+* [Paris](https://nl.wikipedia.org/wiki/Paris_%28mythologie%29), prins van Troje, is de man die haar schaakte. Ze was oorspronkelijk getrouwd met [Menelaus](https://nl.wikipedia.org/wiki/Menela%C3%BCs), koning van Sparta.
 
 #### Afkomst
 
 * er zijn twee versies van haar afkomst.
-* Zeus wordt weer verliefd op een sterfelijke vrouw, [Leda](https://nl.wikipedia.org/wiki/Leda_(mythologie)). Hij verandert zich in de vorm van een zwaan en verleidde haar. Hieruit komen twee eieren voort. Uit het eerste ei komt het broederpaar [Kastor en Pollux](https://nl.wikipedia.org/wiki/Castor_en_Pollux) voort. Uit het andere Helena en [Clytaemnestra](https://nl.wikipedia.org/wiki/Clytaemnestra).
+* Zeus wordt weer verliefd op een sterfelijke vrouw, [Leda](https://nl.wikipedia.org/wiki/Leda_%28mythologie%29). Hij verandert zich in de vorm van een zwaan en verleidde haar. Hieruit komen twee eieren voort. Uit het eerste ei komt het broederpaar [Kastor en Pollux](https://nl.wikipedia.org/wiki/Castor_en_Pollux) voort. Uit het andere Helena en [Clytaemnestra](https://nl.wikipedia.org/wiki/Clytaemnestra).
 * Clytaemnestra zal in de mythologie de naam krijgen van de onbetrouwbare vrouw.
 * [Penelope](https://nl.wikipedia.org/wiki/Penelope) is aan de andere kant het toonbeeld van de ideale vrouw.
 * Helena wordt begeert door alle koningen van Griekenland. Om conflicten te voorkomen heeft Odysseus raad gegeven aan de vader van Helena, [Tyndareus](https://nl.wikipedia.org/wiki/Tyndareos). Dit is de Tyndareïsche eed: alle koningen beloven dat Helena zelf een man mag kiezen uit haar minnaars. Ze zweren deze keuze te respecteren en de gekozen man te beschermen in conflicten om Helena. Deze eed zal dus de aanleiding zijn tot de grootschalige Trojaanse oorlog.
@@ -35,7 +35,7 @@
 #### De twistappel en het Parisoordeel
 
 * Verhaal van de [twistappel](https://nl.wikipedia.org/wiki/Twistappel).
-* Op het huwelijk van [Thetis](https://nl.wikipedia.org/wiki/Thetis_(mythologie)) en [Peleus](https://nl.wikipedia.org/wiki/Peleus) zijn alle goden en godinnen uitgenodigd, behalve [Eris](https://nl.wikipedia.org/wiki/Eris_(mythologie)), de twistgodin. Uit wrok smijt ze een gouden appel in de menigte met het opschrift "voor de mooiste". Hera, Athena en Aphrodite twisten om deze appel. Zeus wilt geen oordeel vellen. Daarom gaan de godinnen en Hermes naar een herder, die Paris blijkt te zijn. Deze was verstoten door zijn ouders omdat er een profetie was die voorspeld had dat hij de ondergang van Troje zou betekenen. Paris koos voor Aphrodite.
+* Op het huwelijk van [Thetis](https://nl.wikipedia.org/wiki/Thetis_%28mythologie%29) en [Peleus](https://nl.wikipedia.org/wiki/Peleus) zijn alle goden en godinnen uitgenodigd, behalve [Eris](https://nl.wikipedia.org/wiki/Eris_%28mythologie%29), de twistgodin. Uit wrok smijt ze een gouden appel in de menigte met het opschrift "voor de mooiste". Hera, Athena en Aphrodite twisten om deze appel. Zeus wilt geen oordeel vellen. Daarom gaan de godinnen en Hermes naar een herder, die Paris blijkt te zijn. Deze was verstoten door zijn ouders omdat er een profetie was die voorspeld had dat hij de ondergang van Troje zou betekenen. Paris koos voor Aphrodite.
 
 #### De twistappel en het Parisoordeel: gender-kritische receptie
 
@@ -70,13 +70,13 @@
 
 * Helena is de ultieme uiterlijke schijn. Ze is in essentie een symbool voor de lege illusie van de schoonheid, die het verlangen maar blijft prikkelen.
 * Helena bezit haar schoonheid niet, ze is zelf slaaf van haar schoonheid.
-* In deze traditie (zoals verteld door [Euripides](https://nl.wikipedia.org/wiki/Euripides)) verloopt het verhaal van Helena compleet anders dan hetgeen Hormerus beschrijft. Paris zou niet Helena zelf, maar een schim die op haar lijkt, roven. De hele Trojaanse oorlog wordt dus letterlijk om een schim gevoerd, waaruit de absurditeit van de oorlog blijkt. [Lees](https://nl.wikipedia.org/wiki/Helena_(mythologie)#Helena_naar_Egypte) de andere versie.
+* In deze traditie (zoals verteld door [Euripides](https://nl.wikipedia.org/wiki/Euripides)) verloopt het verhaal van Helena compleet anders dan hetgeen Hormerus beschrijft. Paris zou niet Helena zelf, maar een schim die op haar lijkt, roven. De hele Trojaanse oorlog wordt dus letterlijk om een schim gevoerd, waaruit de absurditeit van de oorlog blijkt. [Lees](https://nl.wikipedia.org/wiki/Helena_%28mythologie%29#Helena_naar_Egypte) de andere versie.
 
 #### Verwerking van Helena als ongrijpbaar fantoom
 
 * Het idee van Helena als ongrijpbare fantoom.
 * Verhaal van schilder [Zeuxis](https://nl.wikipedia.org/wiki/Zeuxis): hij maakte gebruik van minstens vijf modellen om zijn Helena te vormen.
-* [Faust-legende](https://nl.wikipedia.org/wiki/Faust_(sage)):
+* [Faust-legende](https://nl.wikipedia.org/wiki/Faust_%28sage%28):
   * Wetenschapper Faust ruilt zijn ziel met de duivel in ruil voor alle ervaringen die Faust maar wilt. Hij wilt zien of er iets in de wereld is dat hem behaagde.
 
 #### Helena als gender-vraagstuk: wat is een vrouw?
@@ -107,11 +107,11 @@
 
 #### Het verhaal van de Odyssee
 
-* Helena en [Penelope](https://nl.wikipedia.org/wiki/Penelope) ([en])[https://en.wikipedia.org/wiki/Penelope] verschillen op zeer veel vlakken. Helena blijft echter een zeer passief figuur. Penelope lijkt passief, maar zal haar lot zelf actief besturen.
+* Helena en [Penelope](https://nl.wikipedia.org/wiki/Penelope) ([en](https://en.wikipedia.org/wiki/Penelope)) verschillen op zeer veel vlakken. Helena blijft echter een zeer passief figuur. Penelope lijkt passief, maar zal haar lot zelf actief besturen.
 * Als echtgenoot van Odysseus is ze zijn vrouwelijke tegenhanger. Ze is ook zeer intelligent.
 * Ze staat ook voor de trouwe echtgenote. Ze blijft trouw ondanks het feit dat Odysseus zo lang van huis was (20 jaar!).
 * List van het weefgetouw: Penelope heeft moeite om alle minnaars van zich af te houden. Ze zegt dat ze eerst de lijkwade van Odysseus moet weven, maar 's nachts rafelt ze het terug uit.
-* Wanneer Odysseus terugkeert moet hij afrekenen met alle minnaars. Telemachus, zijn zoon, helpt hem hierbij. Hij gaat vermomd als een bedelaar naar zijn huis. Ondertussen is de list van het weefgetouw doorzien, en moet Penelope een echtgenote kiezen. Ze zegt echter dat ze alleen wilt trouwen met iemand die net als Odysseus een pijl kan schieten door tien bijlkoppen. Odysseus slaagt hier in als vermomde bedelaar en doodt daarna de vrijers. Penelope is echter nog niet overtuigd en wilt nog eens testen of het zeker Odysseus is. Ze zegt tegen een diesntmaagd om hun bed op de gang te zetten voor Odysseus. Odysseus roept hierop dat dat onmogelijk is, aangezien hij dat bed zelf gehouwen had uit een dieptgewortelde olijfboom, en zelfs de goden dit amper zouden kunnen verzetten. Hierdoor weet Penelope dat hij echt Odysseus is.
+* Wanneer Odysseus terugkeert moet hij afrekenen met alle minnaars. Telemachus, zijn zoon, helpt hem hierbij. Hij gaat vermomd als een bedelaar naar zijn huis. Ondertussen is de list van het weefgetouw doorzien, en moet Penelope een echtgenote kiezen. Ze zegt echter dat ze alleen wilt trouwen met iemand die net als Odysseus een pijl kan schieten door tien bijlkoppen. Odysseus slaagt hier in als vermomde bedelaar en doodt daarna de vrijers. Penelope is echter nog niet overtuigd en wilt nog eens testen of het zeker Odysseus is. Ze zegt tegen een dienstmaagd om hun bed op de gang te zetten voor Odysseus. Odysseus roept hierop dat dat onmogelijk is, aangezien hij dat bed zelf gehouwen had uit een dieptgewortelde olijfboom, en zelfs de goden dit amper zouden kunnen verzetten. Hierdoor weet Penelope dat hij echt Odysseus is.
 * Het onverzetbare bed is een metafoor voor de trouw van Penelope binnen hun huwelijk.
 * Het huwelijksbed is het hart van de kosmos voor Odysseus. Odysseus bleef zijn identiteit behouden zolang dat bed daar verankerd staat.
 

@@ -9,7 +9,7 @@
 #### Prometheus
 
 * mythe: Prometheus als schepper van de mens
-* myhte: Prometheus en de verdeling van de offergaven
+* mythe: Prometheus en de verdeling van de offergaven
 
 * Prometheus (intelligentie, vooraf denker) <---> Epimetheus, broer van Prometheus (domheid, achteraf denker)
 	* combinatie ervan: de mens
@@ -26,9 +26,9 @@
 #### Structuralistische 'mythanalyse'
 
 * parole: zijn onder andere de stopwoorden die je gebruikt. Dit is anders voor iedereen, maar er is een gemeenschappelijke structuur, de ‘language’. Dit geldt ook zo voor de mythologie volgens Strauss. Er is daar ook een onderliggende structuur.
-* Niets heeft een betekenis op zichzelf: enkel als je het in relatie met iets anders plaats. Je zet het in een raster met andere begrippen. Slenteren heeft enkel maar betekenis omdat ook wandelen, lopen en stappen bestaat.
+* Niets heeft een betekenis op zichzelf: enkel als je het in relatie met iets anders plaatst. Je zet het in een raster met andere begrippen. Slenteren heeft enkel maar betekenis omdat ook wandelen, lopen en stappen bestaat.
 	* Voorbeeld: schaakspel: je kan perfect een schaakspel met totaal andere figuren opstellen. Je kan de betekenis afleiden vanuit hun betekenis ten opzichte van elkaar. De pionnen staan vooraan, koning in het midden etc. Dit concept is het idee achter het structuralisme.
-* Bij structuralisme: je vericht een studie van de relatie tussen zaken en niet over zaken op zich.
+* Bij structuralisme: je verricht een studie van de relatie tussen zaken en niet over zaken op zich.
 * Bij mythes: kijk naar de tegenstellingen: man - vrouw, zee - aarde,....
 * Dit komt voort omdat de mens ook biologisch uit tweetallen bestaat. twee handen, twee oren, zelfs twee hersenhelften.
 * Tegenstellingen kunnen nogal eens botsen. De mythe heeft in de eerste plaats als doel om al deze zaken die tot conflicten kunnen leiden te verklaren en te plaatsen. Het narratief is een manier om tegenstellingen tot relatie te brengen.
@@ -71,7 +71,7 @@
 * links: pandora wordt gemaakt door Athena en Hephaistos. In Hesiodos' versie droegen alle goden bij aan haar creatie.
 * rechts: schilderij van [John William Waterhouse](https://nl.wikipedia.org/wiki/John_William_Waterhouse)
 * Waarschijnlijk oorspronkelijke etymologie: hier wordt pandora niet gemaakt door de goden, maar staat op uit de aarde. Ze is het epitheton van de Aarde. Hier betekent het de "alles schenkster". Ze was waarschijnlijk eerst een vruchtbaarheidsgodin.
-	* Dit ondersteunt de theorie dat de vruchtbaarheidsgodin voordien een veel prominentere rol had in de relgie. De maatschappij werd echter steeds meer patriarchaler. Het vrouwelijke symbool werd steeds diabolischer voorgesteld.
+	* Dit ondersteunt de theorie dat de vruchtbaarheidsgodin voordien een veel prominentere rol had in de religie. De maatschappij werd echter steeds meer patriarchaler. Het vrouwelijke symbool werd steeds diabolischer voorgesteld.
 
 #### De Analyse van Jean-Pierre Vernant
 
@@ -106,7 +106,7 @@
 * Deze mythe is een verklaring waarom de verdeling van de offergave is zoals ze is (vlees voor de mensen, rest als offer).
 * Vroeger zaten we als mens aan tafel met de goden, nu kunnen we ze enkel bereiken via offergaven. Deze mythe gaat dus over de breuk tussen de mensheid en de goden.
 * In vele jagersculturen worden de botten en het vet op gelijkaardige manier "teruggegeven" aan de goden of natuur of etc. Dit is vaak vanuit het idee dat we als mens niet alleen zomaar alles mogen nemen. We moeten gedeeltelijk teruggeven zodat er dieren blijven komen.
-* In het verhaal wist Zeus dat hij de "verkeerde" deel nam (dus niet het vlees). Dus is het deel met de maag en het vlees misschien niet de juiste keuze. De maag symboliseert het feit dat wij mensen moeten eten om te blijven leven. We hebben onszelf veroordeelt tot de honger. Het vlees is dan weer symbool voor de dood. Door het nuttigen van het dode vlees, veroordeelde de mensheid zich tot de sterfelijkheid. De botten blijven bestaan, ze staan voor de onsterfelijkheid. Dus ook hier is niets wat het lijkt. De onaantrekkelijke stapel was inderdaad de betere keuze. Dus niet enkel Prometheus, maar ook Zeus zelf gebruiken een list.
+* In het verhaal wist Zeus dat hij het "verkeerde" deel nam (dus niet het vlees). Dus is het deel met de maag en het vlees misschien niet de juiste keuze. De maag symboliseert het feit dat wij mensen moeten eten om te blijven leven. We hebben onszelf veroordeelt tot de honger. Het vlees is dan weer symbool voor de dood. Door het nuttigen van het dode vlees, veroordeelde de mensheid zich tot de sterfelijkheid. De botten blijven bestaan, ze staan voor de onsterfelijkheid. Dus ook hier is niets wat het lijkt. De onaantrekkelijke stapel was inderdaad de betere keuze. Dus niet enkel Prometheus, maar ook Zeus zelf gebruikt een list.
 * Prometheus stak de fakkel in brand door ze aan de sterren te houden. Waarom waren de sterren zo belangrijk voor primitieve culturen: de zon en sterren zijn een van de weinige houvast in een zeer veranderlijke wereld. De zon komt elke dag op, en de sterren volgen een vast patroon. Dit werd heel vaak als iets goddelijks aanzien.
 * Er is een verschil tussen het hemelse en aardse vuur. Het hemelse vuur is stabiel en eeuwig. Het aardse vuur kan uitgaan, moet steeds gevoed worden en je kan je eraan verbranden. Dit is alweer een symbool voor de sterfelijkheid. Het onvergankelijke hemelse vuur is het ideaal voor de mens. Komt overeen met Pandora: Pandora doet ook haar man opbranden als een fakkel. De man moet voortdurend werken om haar te voeden.
 * Pandora komt ook overeen met de granen. Er moet geploegd worden om er iets nuttigs uit te kunnen halen.
@@ -117,7 +117,7 @@
 	* Deze thematiek komt ook voor in het Gilgamesj epos. Daar ziet Gilgamesj zijn vriend sterven. Dit kan hij niet verwerken en gaat op zoek naar het geheim van de onsterfelijkheid. Hij trekt op een queeste naar de andere kant van de wereld op zoek naar de enige onsterfelijke mens (die als enige de zondvloed had overleefd). Deze zegt dat Gilgamesj eerst het kleine broertje van de dood moet overwinnen, de slaap. Gilgamesj probeert dan wakker te blijven. Dit lukt hem niet en hij slaapt door zijn vermoeidheid zeven dagen lang. Wanneer hij wakker wordt liggen er zeven broden voor hem, waarvan er al een deel aan het vergaan zijn. De man vraagt hoe hij onsterfelijk denkt te worden als hij zich al voedt met broden die zelf vergaan.
 * De goden leven van nectar en amborzijn. Deze kunnen het lichaam volledig genereren en zelfs onsterfelijk maken. De goden eten dus geen brood en vlees.
 * Hesiodos spreekt ook van een gouden tijd. In die tijd groeide het graan en vruchten over heel de aarde spontaan. De mens bevindt zich tussen de goden en de dieren. De landbouw markeert de tussenpositie. De dieren leven nog gewoon van de aarde. In de gouden tijd waren er nog geen vrouwen. Er was dus nog geen voortplanting. De mens waren toen dus een soort van onsterfelijk geslacht. In andere versies kwamen de mensen voort uit de aarde.
-* Plato's symposium: het verhaal van de bolwezens. Er was een verhaal over het ontstaan van de liefde. Oorspronkelijk waren de mensen bolwezens. De mensen bestonden toen uit een bol met vier armen, vier benen, vier ogen, etc. Deze mensen waren zeer machtig en de goden waren jaloers op deze wezens. Daarom hakten de goden ze in twee (de navel is waar de goden de huid weer bijeentrok). Er waren drie soorten bolwezens: die van de zon, die van de aarde en die van de maan. De zonwezens zijn de homoseksuelen, de aardwezens zijn de lesbiennes en de wezens van de maan zijn de hetroseksuelen. Sinds de goden de bolwezen geschijden heeft, zijn alle mensen op zoek naar hun andere helft.
+* Plato's symposium: het verhaal van de bolwezens. Er was een verhaal over het ontstaan van de liefde. Oorspronkelijk waren de mensen bolwezens. De mensen bestonden toen uit een bol met vier armen, vier benen, vier ogen, etc. Deze mensen waren zeer machtig en de goden waren jaloers op deze wezens. Daarom hakten de goden ze in twee (de navel is waar de goden de huid weer bijeentrok). Er waren drie soorten bolwezens: die van de zon, die van de aarde en die van de maan. De zonwezens zijn de homoseksuelen, de aardwezens zijn de lesbiennes en de wezens van de maan zijn de hetroseksuelen. Sinds de goden de bolwezens gescheiden hebben, zijn alle mensen op zoek naar hun andere helft.
 * De Grieken zaten hier zeer mee in: de mannen hebben altijd een vrouw nodig om zich voort te kunnen planten.
 * Partegogenese: dit is de maagdelijke voortplanting. Dit is een belangrijk thema voor een aantal mythes. Denk aan Zeus die in staat was om Athena te verwekken.
 * De mens is een gebrekkig wezen: hij heeft de landbouw en het huwelijk om te kunnen leven en zich voort te planten. Bij de goden ligt dit anders: deze doen niet aan landbouw en kunnen zich zelfs alleen voortplanten.
@@ -135,7 +135,7 @@
 * We weten niet vanwaar de kruik komt.
 * Enkel de hoop blijft nog zitten waneer ze de kruik weer sluit.
 * Alweer kunnen we de hoop plaatsen als een scheiding tussen mens, dier en god. Goden hoeven niet te hopen. Ze hebben alles wat ze willen. Ook het dier zal niet hopen. Het ondergaat wel leven en dood, maar is niet bewust van zijn situatie. Het weet niet dat het moet sterven. De mens is dus de enige die moet sterven en lijden, en is zich daar ook nog eens van bewust. Hij is dus de enige die kan hopen.
-* Aesgulos: tragedieschrijver. Hij beschrijft hoe Prometheus wordt vastgeketend in de Kaukasus als staf voor het helpen van de mens. Elke dag komt de arend zijn lever opeten. Zeus doet dit omdat Prometheus iets weet wat Zeus niet weet. Zeus heeft zijn troon verkregen door zijn vader van de troon te stoten (die op zijn beurt hetzelfde heeft gedaan). Hij is dus alle dagen bang dat hij een zoon zal verwekken die hetzelfde bij hem zal doen. En Prometheus weet bij welke vrouw dit gaat gebeuren. Dit geheim probeert Zeus te bemachtigen door Prometheus te martelen. Prometheus staat hier symbool van de ultieme rebelse symbool.
+* Aesgulos: tragedieschrijver. Hij beschrijft hoe Prometheus wordt vastgeketend in de Kaukasus als staf voor het helpen van de mens. Elke dag komt de arend zijn lever opeten. Zeus doet dit omdat Prometheus iets weet wat Zeus niet weet. Zeus heeft zijn troon verkregen door zijn vader van de troon te stoten (die op zijn beurt hetzelfde heeft gedaan). Hij is dus alle dagen bang dat hij een zoon zal verwekken die hetzelfde bij hem zal doen. En Prometheus weet bij welke vrouw dit gaat gebeuren. Dit geheim probeert Zeus te bemachtigen door Prometheus te martelen. Prometheus staat hier symbool voor het ultieme rebelse.
 * Prometheus staat ook symbool voor de overgang van dier naar mens. Hij heeft het schrift en landbouw aangeleerd.
 * tuflas alpidas: blinde hoopgevoelens
 * Prometheus is ook een paradox: hij brengt wel het schrift en de landbouw, maar tegelijkertijd zorgt hij voor een breuk tussen de goden en de mensen.
@@ -148,7 +148,7 @@
 
 #### De (overmoedige) wetenschapper
 
-* Vuur staat voor de menselijke geest. De mens overstijgt het dierendom en probeert het godedom te bereiken door middel van zijn ingenieuse vindingen.
+* Vuur staat voor de menselijke geest. De mens overstijgt het dierenrijk en probeert het godendom te bereiken door middel van zijn ingenieuze vindingen.
 * Het verhaal van Frankenstein (Mary Shelly) wordt ook wel de moderne Prometheus genoemd. Dokter frankenstein is hier de schepper. De schepper en schepping trekken elkaar de ondergang in.
 * De wetenschap kan zich lelijk mispakken (zich branden) wanneer hij zelf voor god probeert te spelen.
 * Frankenstein vertoont veel gelijkenissen met Prometheus. Maar je kan ook stellen dat het monster zelf vergeleken kan worden met Prometheus. Ook het monster komt in opstand tegen zijn schepper.

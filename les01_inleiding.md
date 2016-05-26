@@ -98,7 +98,7 @@
 
 * **Qua thema**
 	* [Kosmogonie](https://en.wikipedia.org/wiki/Cosmogony): mythes over het ontstaan van het universum en de wereld.
-		* Zelfs wetenschappelijke theorieën kunnen beschoud worden als kosmonogie
+		* Zelfs wetenschappelijke theorieën kunnen beschouwd worden als kosmogonie
 		* Niet zomaar een verhaaltje, gaan vaak op zoek naar verklaringen
 		* Niet universeel. Er zijn culturen (waaronder een aantal indianenstammen) die absoluut geen ontstaansmythes hebben. Bij deze volkeren wordt vaak gewoon aanvaard dat er een moment was waarvoor het universum niet bestond en daarna wel bestond.
 	* Theogonie: studie van de goden
